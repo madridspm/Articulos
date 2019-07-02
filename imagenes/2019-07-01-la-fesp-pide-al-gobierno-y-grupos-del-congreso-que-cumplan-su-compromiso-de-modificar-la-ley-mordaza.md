@@ -1,3 +1,4 @@
 http://sindicato-periodistas.es/wp-content/uploads/fesp-2.png
-lofo FeSP 
-ETIQUETAS: COMUNICADOS, DESTACADAS
+logo FeSP
+Categorías: Comunicados, destacadas, politica
+Etiquetas: Ley Mordaza, Libertad expresión,
