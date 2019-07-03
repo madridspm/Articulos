@@ -1,0 +1,11 @@
+# El SPM convoca a la manifestación del sábado para gritar "NO guerra, NO manipulación"
+
+*Madrid, 14 de febrero de 2003. (Comunicado de la Junta Ejecutiva del SPM).*
+
+El Sindicato de Periodistas de Madrid (SPM) convoca a toda la profesión a la manifestación unitaria antibélica del sábado en Madrid, en la que participará con una pancarta propia con el lema: "NO guerra, NO manipulación" . Como el resto de miembros de la Federación de Sindicatos de Periodistas (FeSP), el SPM no sólo asume los argumentos expuestos por las organizaciones convocantes de las movilizaciones, sino que los completa con un rotundo rechazo a la manipulación informativa que pretende justificar un ataque militar contra Irak. Para empezar, desterremos eufemismos mentirosos como "guerra preventiva" o "daños colaterales".
+
+El SPM, que defiende su "compromiso ético a favor de la paz, los derechos humanos y la justicia social", considera una obligación democrática oponerse a la resolución de conflictos y disputas por la fuerza, y apuesta por buscar salidas a través del diálogo y la negociación. Mucho más cuando, vista la guerra –siempre bárbara e inhumana-- desde la perspectiva periodística, la primera víctima es la verdad. Lo está siendo ya, en forma de manipulación noticiosa, antes incluso de que el brutal lenguaje de las armas acalle las palabras.
+
+Es un insulto a la dignidad de nuestra profesión y de toda la ciudadanía, cuyo derecho a una información libre debemos asegurar. Un paso más hacia el abismo de la degradación democrática, reflejada en los intentos del Gobierno y la prensa oficialista de ocultar realidades tan palpables como la huelga general del 20-J o la catástrofe ecológica del ‘Prestige’. Sólo el clamor de numerosas organizaciones políticas, sociales y profesionales --empezando por los Sindicatos de Periodistas— ha podido levantarse sobre tanta mentira.
+
+Que nadie se confunda: el SPM no defiende al régimen de Sadam Husein ni al terrorismo internacional. Pero para el colectivo periodístico que representa, guerra y manipulación constituyen una doble e intolerable agresión a su ética humana y profesional. Por eso estaremos, como personas y como periodistas, en la manifestación del sábado. Por la paz y la verdad. Contra la guerra y la manipulación.
