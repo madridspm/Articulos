@@ -1,4 +1,4 @@
-#El SPM convoca a su militancia a acudir a la vista oral de la demanda de Paco Frechoso contra ‘El Mundo’
+# El SPM convoca a su militancia a acudir a la vista oral de la demanda de Paco Frechoso contra ‘El Mundo’
 
 *Madrid, 9 de febrero de 2003. (Comunicado de la Junta Ejecutiva del SPM).*
 
