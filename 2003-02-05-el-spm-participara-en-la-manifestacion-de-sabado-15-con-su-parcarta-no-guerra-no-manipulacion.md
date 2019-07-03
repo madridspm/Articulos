@@ -1,4 +1,4 @@
-#El SPM participará en la manifestación del sábado 15con su pancarta de NO GUERRA, NO MANIPULACIÓN
+# El SPM participará en la manifestación del sábado 15con su pancarta de NO GUERRA, NO MANIPULACIÓN
 
 *Madrid, 5 de febrero de 2003.*
 
