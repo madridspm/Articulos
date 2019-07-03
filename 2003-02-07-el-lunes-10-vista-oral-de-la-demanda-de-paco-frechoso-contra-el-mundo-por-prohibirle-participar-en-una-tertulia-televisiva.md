@@ -1,4 +1,4 @@
-#El lunes 10, vista oral de la demanda de Paco Frechoso contra El Mundo por prohibirle participar en una tertulia televisiva
+# El lunes 10, vista oral de la demanda de Paco Frechoso contra El Mundo por prohibirle participar en una tertulia televisiva
 
 *Madrid, 7 de febrero de 2003.*
 
