@@ -1,4 +1,4 @@
-#Jorge M. Reverte no podrá participar
+# Jorge M. Reverte no podrá participar
 
 *Madrid, 9 de enero de 2003.*
 
