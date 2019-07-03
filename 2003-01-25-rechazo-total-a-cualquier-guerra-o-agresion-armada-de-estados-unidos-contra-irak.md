@@ -1,4 +1,4 @@
-#Rechazo total ‘a cualquier guerra o agresión armada de Estados Unidos contra Irak’
+#Rechazo total "a cualquier guerra o agresión armada de Estados Unidos contra Irak@
 
 *Madrid, 25 de enero de 2003. (Resolución del I Congreso del SPM)*
 
