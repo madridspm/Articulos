@@ -1,4 +1,4 @@
-#El Mundo quiere recusar al juez del "caso Frechoso" por haber tenido cargos políticos con el Gobierno del PSOE
+# El Mundo quiere recusar al juez del "caso Frechoso" por haber tenido cargos políticos con el Gobierno del PSOE
 
 *Madrid, 10 de febrero de 2003.*
 
