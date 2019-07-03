@@ -1,4 +1,4 @@
-#Denuncia de la prohibición de ‘El Mundo’ a un periodista de participar en una tertulia televisiva
+# Denuncia de la prohibición de ‘El Mundo’ a un periodista de participar en una tertulia televisiva
 
 *Madrid, 25 de enero de 2003. (Resolución del I Congreso del SPM).*
 
