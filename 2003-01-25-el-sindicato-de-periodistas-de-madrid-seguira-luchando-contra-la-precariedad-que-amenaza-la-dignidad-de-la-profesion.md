@@ -1,4 +1,4 @@
-#El Sindicato de Periodistas de Madrid seguirá luchando contra la precariedad que amenaza 'la dignidad de la profesión'
+# El Sindicato de Periodistas de Madrid seguirá luchando contra la precariedad que amenaza 'la dignidad de la profesión'
 
 *Madrid, 25 de enero de 2003.*
 
