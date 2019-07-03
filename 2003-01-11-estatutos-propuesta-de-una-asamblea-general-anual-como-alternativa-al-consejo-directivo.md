@@ -1,4 +1,4 @@
-#Estatutos: Propuesta de una Asamblea General anual como alternativa al Consejo Directivo
+# Estatutos: Propuesta de una Asamblea General anual como alternativa al Consejo Directivo
 
 *Madrid, 11 de enero de 2003*
 
