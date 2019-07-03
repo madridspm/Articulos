@@ -1,4 +1,4 @@
-#Cartelada nocturna por las zonas de copas frecuentadas por periodistas
+# Cartelada nocturna por las zonas de copas frecuentadas por periodistas
 
 *Madrid, 18 de enero de 2003.*
 
