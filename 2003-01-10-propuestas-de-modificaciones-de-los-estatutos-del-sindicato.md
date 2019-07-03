@@ -1,4 +1,4 @@
-#Propuestas de modificaciones de los Estatutos del Sindicato
+# Propuestas de modificaciones de los Estatutos del Sindicato
 
 *Madrid, 10 de enero de 2003*
 
