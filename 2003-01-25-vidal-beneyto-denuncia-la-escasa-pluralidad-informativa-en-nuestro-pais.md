@@ -1,4 +1,4 @@
-#Vidal-Beneyto denuncia la escasa pluralidad informativa en nuestro país
+# Vidal-Beneyto denuncia la escasa pluralidad informativa en nuestro país
 
 *Madrid, 25 de enero de 2003 (foto Antonio Peiró)*
 
@@ -6,7 +6,7 @@ El catedrático de Sociología y estudioso de la comunicación José Vidal-Beney
 
 Vidal-Beneyto instó a los periodistas presentes, reunidos bajo el lema “Por la dignidad de la profesión”, a defender su autonomía personal y laboral frente a la presión de los intereses de los grandes grupos mediáticos. También les pidió que usen su posición para contribuir pedagógicamente a difundir las prácticas democráticas en un momento de “retroceso” de este aspecto.
 
-“Sólo la información democrática es información”, aseguró Vidal-Beneyto, quien mostró su preocupación por los condicionamientos que hoy en día sufre la información, ya que en su opinión existe una serie de estereotipos de partida que determinan las noticias.
+"Sólo la información democrática es información", aseguró Vidal-Beneyto, quien mostró su preocupación por los condicionamientos que hoy en día sufre la información, ya que en su opinión existe una serie de estereotipos de partida que determinan las noticias.
 
 En la inauguración oficial del Congreso del SPM, Manuel Núñez Encabo, vicepresidente del Ateneo de Madrid y ponente del Código Europeo de Deontología del Periodismo, reclamó la vigencia de ese texto aprobado hace 10 años por el Consejo de Europa. A su juicio, remarcó, en nuestro país no ha sido aplicado ni por los medios públicos ni por los privados.
 
