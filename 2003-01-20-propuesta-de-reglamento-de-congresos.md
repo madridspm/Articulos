@@ -1,8 +1,8 @@
-#Propuesta de Reglamento de Congresos
+# Propuesta de Reglamento de Congresos
 
 *Madrid, 20 de enero de 2003*
 
-####Propuesta deReglamento de Congresos
+#### Propuesta deReglamento de Congresos
 
 I. Constitución del Congreso:
 
