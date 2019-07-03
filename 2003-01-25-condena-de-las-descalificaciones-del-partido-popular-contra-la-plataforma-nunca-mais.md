@@ -1,4 +1,4 @@
-#Condena de las descalificaciones del Partido Popular contra la plataforma ‘Nunca Máis’
+# Condena de las descalificaciones del Partido Popular contra la plataforma ‘Nunca Máis’
 
 *Madrid, 25 de enero de 2003. (Resolución del I Congreso del SPM).*
 
