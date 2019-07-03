@@ -1,4 +1,4 @@
-#La Justicia anula el despido de un corresponsal de Efe que promovió una campaña reivindicativa
+# La Justicia anula el despido de un corresponsal de Efe que promovió una campaña reivindicativa
 
 *Madrid, 4 de febrero de 2003.*
 
