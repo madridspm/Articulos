@@ -1,4 +1,4 @@
-#La FeSP apoyará el 10 de abril acciones unitarias y adecuadas al sector y a las empresas
+# La FeSP apoyará el 10 de abril acciones unitarias y adecuadas al sector y a las empresas
 
 *Madrid, 7 de abril de 2003. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
