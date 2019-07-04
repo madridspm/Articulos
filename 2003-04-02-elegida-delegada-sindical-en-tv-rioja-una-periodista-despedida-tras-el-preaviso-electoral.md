@@ -1,4 +1,4 @@
-#Elegida delegada sindical en TV Rioja una periodista despedida tras el preaviso preelectoral
+# Elegida delegada sindical en TV Rioja una periodista despedida tras el preaviso preelectoral
 
 *Logroño, 2 de abril de 2003. (Nota conjunta del SPIR y CC.OO.)*
 
