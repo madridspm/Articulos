@@ -1,4 +1,4 @@
-#El domingo 30, Marcha antibélica a Torrejón y Acto-concierto a su llegada
+# El domingo 30, Marcha antibélica a Torrejón y Acto-concierto a su llegada
 
 *Madrid, 28 de marzo de 2003.*
 
