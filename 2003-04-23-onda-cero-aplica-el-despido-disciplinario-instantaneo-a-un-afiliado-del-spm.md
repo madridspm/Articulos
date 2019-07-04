@@ -1,4 +1,4 @@
-#Onda Cero aplica el "despido disciplinario instantáneo" a un afiliado al SPM
+# Onda Cero aplica el "despido disciplinario instantáneo" a un afiliado al SPM
 
 *Madrid, 23 de mayo de 2003.*
 
