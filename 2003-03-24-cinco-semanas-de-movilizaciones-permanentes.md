@@ -1,8 +1,8 @@
-#Cinco semanas de movilizaciones permanentes
+# Cinco semanas de movilizaciones permanentes
 
-Madrid, 24 de marzo de 2003. (Hoja Informativa de la Sección Sindical SPM-RNE).
+*Madrid, 24 de marzo de 2003. (Hoja Informativa de la Sección Sindical SPM-RNE).*
 
-Ninguna causa, ni siquiera en la transición, ha movilizado a tantos millones de ciudadanos y tan constantemente. Claro que, entonces, el señor Aznar preparaba oposiciones mientras muchos se batían contra la dictadura y, ahora, sigue preparando su futuro mientras los demás protestamos contra una guerra ilegal de la que él se ha hecho cómplice, enfangando, de paso, a su Partido Popular, que ya empieza a ser conocido como ''Partido Policial''.
+Ninguna causa, ni siquiera en la transición, ha movilizado a tantos millones de ciudadanos y tan constantemente. Claro que, entonces, el señor Aznar preparaba oposiciones mientras muchos se batían contra la dictadura y, ahora, sigue preparando su futuro mientras los demás protestamos contra una guerra ilegal de la que él se ha hecho cómplice, enfangando, de paso, a su Partido Popular, que ya empieza a ser conocido como *Partido Policial*.
 
 El llamado síndrome de La Moncloa se queda pequeño para definir el autismo en el que ha caído el aparato político de la derecha, empeñado en dar manotazos desesperados con los resultados conocidos: cinco semanas de movilizaciones permanentes. Lo están probando todo, y no les funciona. Lo último, utilizar a la Policía y los desórdenes de un puñado de alborotadores en retirada para criminalizar todo lo mucho que se mueve.
 
