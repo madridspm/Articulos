@@ -1,12 +1,12 @@
-#La FeSP denuncia que la precariedad e inseguridad laboral afectan al 47% de periodistas, incluidos corresponsales de guerra
+# La FeSP denuncia que la precariedad e inseguridad laboral afectan al 47% de periodistas, incluidos corresponsales de guerra
 
 *Madrid, 12 de abril de 2003. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
 La desaparición de los compañeros Julio A. Parrado y José Couso, muertos en la injustificable guerra contra Irak, viene a poner de relieve de forma palpable ante la opinión pública la situación de precariedad en la que se encuentran los trabajadores de la información. A pesar de la innegable importancia de los hechos que cubrían y la labor de responsabilidad que realizaban para sus respectivas empresas desde hace años, la situación laboral de ambos no era la que les correspondía.
 
-Julio A. Parrado estaba en excedencia en su empresa y colaboraba con el corresponsal de su periódico en Nueva York, por lo que percibía unas cantidades fijas más las dietas adicionales y los gastos que tenía para llevar a cabo ese trabajo; a pesar de no pertenecer a la plantilla de ‘El Mundo’ (había solicitado el reingreso, pero aún estaba en excedencia), le han permitido que fuera como enviado especial a una guerra.
+Julio A. Parrado estaba en excedencia en su empresa y colaboraba con el corresponsal de su periódico en Nueva York, por lo que percibía unas cantidades fijas más las dietas adicionales y los gastos que tenía para llevar a cabo ese trabajo; a pesar de no pertenecer a la plantilla de *El Mundo* (había solicitado el reingreso, pero aún estaba en excedencia), le han permitido que fuera como enviado especial a una guerra.
 
-José Couso trabajaba como ‘autónomo’ para Telecinco: la cámara con la que ha filmado el horror de esta guerra era suya y él era su propia empresa; esa cadena de televisión contrató sus servicios y renovaba periódicamente ese contrato, pero no lo tenía entre sus trabajadores de plantilla (sólo dos cámaras de Telecinco pertenecen a la plantilla, los demás eran contratados como José Couso).
+José Couso trabajaba como *autónomo* para Telecinco: la cámara con la que ha filmado el horror de esta guerra era suya y él era su propia empresa; esa cadena de televisión contrató sus servicios y renovaba periódicamente ese contrato, pero no lo tenía entre sus trabajadores de plantilla (sólo dos cámaras de Telecinco pertenecen a la plantilla, los demás eran contratados como José Couso).
 
 La Federación de Sindicatos de Periodistas (FeSP) vuelve a denunciar, como ya llevan diez años haciéndolo los Sindicatos de Periodistas, que así es como trabajan alrededor del 47% de los informadores en España, y si gran parte de la opinión pública lo desconoce es por la cortina de silencio que los propios medios extienden sobre nuestras reivindicaciones.
 
