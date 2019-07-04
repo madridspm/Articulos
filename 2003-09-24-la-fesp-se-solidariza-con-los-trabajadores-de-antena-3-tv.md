@@ -1,4 +1,4 @@
-#La FeSP se solidariza con los trabajadores de Antena 3 TV
+# La FeSP se solidariza con los trabajadores de Antena 3 TV
 
 *Madrid, 24 de septiembre de 2003. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
@@ -10,6 +10,6 @@ La FeSP rechaza igualmente la pretensión de los responsables de la cadena de re
 
 Por este motivo, damos todo nuestro apoyo a las movilizaciones convocadas por el Comité de Empresa para conseguir que la dirección de Antena 3 TV retire el ERE e impulse, en su caso, un plan de bajas incentivadas negociado con los representantes de los trabajadores.
 
-NO AL ERE DE ANTENA 3 TV.
+**NO AL ERE DE ANTENA 3 TV.**
 
-NO A LA PRECARIZACIÓN DE LOS PUESTOS DE TRABAJO.
+**NO A LA PRECARIZACIÓN DE LOS PUESTOS DE TRABAJO.**
