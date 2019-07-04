@@ -1,4 +1,4 @@
-#Respuesta incompleta pero significativa en el referéndum convocado por el SPM, CC.OO. y USO sobre el convenio de RTVE
+# Respuesta incompleta pero significativa en el referéndum convocado por el SPM, CC.OO. y USO sobre el convenio de RTVE
 
 *Madrid, 27 de abril de 2004.*
 
