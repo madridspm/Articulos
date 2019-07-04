@@ -1,8 +1,8 @@
-#La FeSP apoyará el 10 de abril acciones unitarias y adecuadas al sector y a las empresas
+# La FeSP apoyará el 10 de abril acciones unitarias y adecuadas al sector y a las empresas
 
 *Madrid, 7 de abril de 2003. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
-La invasión británico-estadounidense de Iraq está provocando lo que denunciábamos antes de que empezase: miles de muertos y heridos civiles, destrucción y miseria. La protesta, en consecuencia, debe ir en aumento. Sólo la movilización ha permitido aglutinar a la inmensa mayoría de la ciudadanía contra la guerra, visualizar su rechazo y dejar en absoluta soledad a los partidarios de la agresión armada ‘preventiva’, unilateral e ilegal. Los trabajadores y trabajadoras tenemos que dejar patente nuestra frontal oposición a esta barbarie.
+La invasión británico-estadounidense de Iraq está provocando lo que denunciábamos antes de que empezase: miles de muertos y heridos civiles, destrucción y miseria. La protesta, en consecuencia, debe ir en aumento. Sólo la movilización ha permitido aglutinar a la inmensa mayoría de la ciudadanía contra la guerra, visualizar su rechazo y dejar en absoluta soledad a los partidarios de la agresión armada *preventiva*, unilateral e ilegal. Los trabajadores y trabajadoras tenemos que dejar patente nuestra frontal oposición a esta barbarie.
 
 En el ámbito informativo tenemos, además, la responsabilidad de denunciar públicamente la censura, la manipulación y la falta de libertad de expresión que acompañan a la brutalidad de la guerra. Máxime cuando privan a los sectores sociales defensores de la paz del protagonismo de los mensajes emitidos por los medios de comunicación, la mayoría –y especialmente los públicos-- sometidos vergonzosa y antidemocráticamente al Gobierno y a sus fieles.
 
