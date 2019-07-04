@@ -1,4 +1,4 @@
-#SPM-FeSP gana las elecciones sindicales en El Mundo
+# SPM-FeSP gana las elecciones sindicales en El Mundo
 
 *Madrid, 16 de marzo de 2003.*
 
