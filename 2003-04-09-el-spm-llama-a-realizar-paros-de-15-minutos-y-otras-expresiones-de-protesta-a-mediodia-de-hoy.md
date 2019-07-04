@@ -1,4 +1,4 @@
-#El SPM llama a realizar paros de 15 minutos y otras expresiones de protesta a mediodía de hoy
+# El SPM llama a realizar paros de 15 minutos y otras expresiones de protesta a mediodía de hoy
 
 *Madrid, 9 de abril de 2003.*
 
