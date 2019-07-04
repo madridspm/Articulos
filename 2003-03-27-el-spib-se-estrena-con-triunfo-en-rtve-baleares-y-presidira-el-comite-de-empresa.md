@@ -1,4 +1,4 @@
-#El SPIB se estrena con triunfo en RTVE-Baleares y presidirá el Comité de Empresa
+# El SPIB se estrena con triunfo en RTVE-Baleares y presidirá el Comité de Empresa
 
 *Madrid, 27 de marzo de 2003.*
 
