@@ -1,4 +1,4 @@
-#SPC-FeSP gana las elecciones sindicales en EFE Barcelona
+# SPC-FeSP gana las elecciones sindicales en EFE Barcelona
 
 *Madrid, 10 de marzo de 2003*
 
