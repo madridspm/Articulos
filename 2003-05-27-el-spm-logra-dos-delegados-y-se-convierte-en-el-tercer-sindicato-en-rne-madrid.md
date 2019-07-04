@@ -1,4 +1,4 @@
-#El SPM logra dos delegados y se convierte en el tercer sindicato en RNE-Madrid
+# El SPM logra dos delegados y se convierte en el tercer sindicato en RNE-Madrid
 
 *Madrid, 27 de mayo de 2003*
 
