@@ -1,4 +1,4 @@
-#La plantilla de Antena 3 realiza este miércoles 24 su primera jornada de huelga contra los 390 despidos
+# La plantilla de Antena 3 realiza este miércoles 24 su primera jornada de huelga contra los 390 despidos
 
 *Madrid, 23 de septiembre de 2003.*
 
