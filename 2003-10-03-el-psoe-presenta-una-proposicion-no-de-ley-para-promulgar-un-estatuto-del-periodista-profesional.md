@@ -1,4 +1,4 @@
-#El PSOE presenta una Proposición No de Ley para promulgar un Estatuto del Periodista Profesional
+# El PSOE presenta una Proposición No de Ley para promulgar un Estatuto del Periodista Profesional
 
 *Madrid, 3 de octubre de 2003*
 
@@ -20,21 +20,21 @@ En los países de nuestro entorno es habitual el reconocimiento a los periodista
 
 España es el único país de la Unión Europea que carece de una regulación de la profesión periodística, a pesar de las recomendaciones hechas por la Asamblea Parlamentaria del Consejo de Europa en su Resolución, aprobada por unanimidad el 1 de julio de 1993, sobre el “Código Europeo de Deontología del Periodismo”, donde, entre otros aspectos, señala en su artículo 14 que:
 
-“Es necesario reforzar las garantías de libertad de expresión de los periodistas, a quienes corresponde en última instancia ser los emisores finales de la información. En este sentido, es necesario desarrollar jurídicamente y clarificar las figuras de la cláusula de conciencia y el secreto profesional de las fuentes confidenciales, armonizando las disposiciones nacionales sobre estas materias para ejercerlas en el marco más amplio del espacio democrático europeo”.
+"Es necesario reforzar las garantías de libertad de expresión de los periodistas, a quienes corresponde en última instancia ser los emisores finales de la información. En este sentido, es necesario desarrollar jurídicamente y clarificar las figuras de la cláusula de conciencia y el secreto profesional de las fuentes confidenciales, armonizando las disposiciones nacionales sobre estas materias para ejercerlas en el marco más amplio del espacio democrático europeo".
 
 Y en su art. 32:
 
-“Es necesaria la elaboración de Estatutos de la Redacción periodística con la finalidad de ordenar las relaciones profesionales de los periodistas con los propietarios y editores en el interior de los medios de comunicación, con independencia de las obligaciones laborales”.
+"Es necesaria la elaboración de Estatutos de la Redacción periodística con la finalidad de ordenar las relaciones profesionales de los periodistas con los propietarios y editores en el interior de los medios de comunicación, con independencia de las obligaciones laborales".
 
 Partiendo del convencimiento de que la independencia de los periodistas es la mejor garantía para el derecho de la ciudadanía a ser informada de forma veraz y plural, se debe desarrollar un conjunto de facultades que afirme esa independencia frente al poder político y que procure un equilibrio con la independencia editorial de las empresas informativas.
 
-Está claro que no basta con garantizar un “pluralismo externo” (pluralidad de empresas informativas) para salvaguardar el derecho de la información a la ciudadanía; es también necesario un “pluralismo interno” para que el pluralismo social se manifieste en el seno de las empresas informativas.
+Está claro que no basta con garantizar un "pluralismo externo" (pluralidad de empresas informativas) para salvaguardar el derecho de la información a la ciudadanía; es también necesario un "pluralismo interno" para que el pluralismo social se manifieste en el seno de las empresas informativas.
 
 Por todo ello, el Grupo Parlamentario Socialista presenta la siguiente.
 
 PROPOSICIÓN NO DE LEY
 
-“El Congreso de los Diputados insta al Gobierno a:
+> El Congreso de los Diputados insta al Gobierno a:
 
 1. Elaborar un proyecto legislativo que regule los derechos de todo periodista profesional en España y que constituya un Estatuto del Periodista Profesional de obligada incorporación en todos los ámbitos de la negociación colectiva de los sectores de la comunicación.
 Dicho Estatuto deberá incorporar derechos y deberes profesionales que garanticen a los ciudadanos su derecho a la información y a la libre expresión, como exige la Constitución, así como un mínimo de derechos laborales de los informadores para que puedan ejercer sus tareas por encima de presiones de todo orden, sean cuales fueran sus modalidades contractuales.
