@@ -1,4 +1,4 @@
-#El 14 de Marzo, paro contra la guerra
+# El 14 de Marzo, paro contra la guerra
 
 *Barcelona, 12 de marzo de 2003*
 
