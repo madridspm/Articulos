@@ -1,4 +1,4 @@
-#Este jueves a las 8 de la tarde, concentración en la Puerta del Sol
+# Este jueves a las 8 de la tarde, concentración en la Puerta del Sol
 
 *Madrid, 20 de marzo de 2003.*
 
