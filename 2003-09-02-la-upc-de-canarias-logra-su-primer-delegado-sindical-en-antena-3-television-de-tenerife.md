@@ -1,4 +1,4 @@
-#La UPC de Canarias logra su primer delegado sindical en Antena 3 Televisión de Tenerife
+# La UPC de Canarias logra su primer delegado sindical en Antena 3 Televisión de Tenerife
 
 *Madrid, 2 de septiembre de 2003.*
 
