@@ -1,4 +1,4 @@
-#Caso Frechoso: Este viernes, vista oral de la demanda de Francisco Frechoso contra El Mundo
+# Caso Frechoso: Este viernes, vista oral de la demanda de Francisco Frechoso contra El Mundo
 
 *Madrid, 24 de abril de 2003.*
 
