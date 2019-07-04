@@ -1,4 +1,4 @@
-#Sindicatos de Periodistas lograron representación en todos los centros donde presentaron candidatura (Elecciones en RTVE)
+# Sindicatos de Periodistas lograron representación en todos los centros donde presentaron candidatura (Elecciones en RTVE)
 
 *Madrid, 27 de marzo de 2003.*
 
