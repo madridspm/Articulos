@@ -1,4 +1,4 @@
-#Este jueves (22:00 a 22:15), apagón y cacerolada contra la guerra
+# Este jueves (22:00 a 22:15), apagón y cacerolada contra la guerra
 
 *Madrid, 27 de marzo de 2003.*
 
