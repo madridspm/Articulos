@@ -1,4 +1,4 @@
-#Acciones a llevar a cabo en caso de guerra
+# Acciones a llevar a cabo en caso de guerra
 
 *Madrid, 19 de marzo de 2003.*
 
