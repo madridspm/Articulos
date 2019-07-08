@@ -1,6 +1,6 @@
-#Cinco Días pretende despedir a un tercio de su plantilla
+# Cinco Días pretende despedir a un tercio de su plantilla
 
-Madrid, 23 de enero de 2004
+*Madrid, 23 de enero de 2004*
 
 La empresa editora del diario económico *Cinco Días* ha comunicado a los representantes de los trabajadores su intención de despedir a 43 de sus 120 trabajadores en sus diferentes centros de trabajo.
 
