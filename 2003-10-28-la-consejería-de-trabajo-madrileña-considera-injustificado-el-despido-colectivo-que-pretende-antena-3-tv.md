@@ -1,4 +1,4 @@
-#La Consejería de Trabajo madrileña considera injustificado el despido colectivo que pretende Antena 3 TV
+# La Consejería de Trabajo madrileña considera injustificado el despido colectivo que pretende Antena 3 TV
 
 *Madrid, 28 de octubre de 2003.*
 
