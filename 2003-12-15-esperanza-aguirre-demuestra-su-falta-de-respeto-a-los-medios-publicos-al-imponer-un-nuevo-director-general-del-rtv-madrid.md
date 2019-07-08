@@ -1,4 +1,4 @@
-#Esperanza Aguirre demuestra su falta de respeto a los mediospúblicos al imponer un nuevo director general de RTV Madrid
+# Esperanza Aguirre demuestra su falta de respeto a los mediospúblicos al imponer un nuevo director general de RTV Madrid
 
 *Madrid, 15 de diciembre de 2003. (Comunicado de la Junta Ejecutiva del SPM).*
 
