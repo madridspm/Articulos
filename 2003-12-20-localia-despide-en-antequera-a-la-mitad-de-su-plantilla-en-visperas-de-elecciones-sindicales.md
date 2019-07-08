@@ -1,4 +1,4 @@
-#Localia despide en Antequera a la mitad de su plantilla en vísperas de elecciones sindicales
+# Localia despide en Antequera a la mitad de su plantilla en vísperas de elecciones sindicales
 
 *Málaga, 20 de diciembre de 2003. (Comunicado del SPA).*
 
