@@ -1,4 +1,4 @@
-#El SPM rechaza los 43 despidos anunciados en Cinco Días
+# El SPM rechaza los 43 despidos anunciados en Cinco Días
 
 *Madrid, 26 de enero de 2004. (Comunicado de la Junta Ejecutiva del SPM).*
 
