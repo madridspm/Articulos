@@ -1,4 +1,4 @@
-#Un juez de Granada reconoce la relación laboral de un ‘colaborador’ del diario "Ideal"
+# Un juez de Granada reconoce la relación laboral de un ‘colaborador’ del diario "Ideal"
 
 *Granada, 13 de diciembre de 2003.*
 
