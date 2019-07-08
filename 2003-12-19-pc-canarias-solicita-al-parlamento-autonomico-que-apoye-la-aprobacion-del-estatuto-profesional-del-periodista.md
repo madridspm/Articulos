@@ -1,4 +1,4 @@
-#PC-Canarias solicita al Parlamento autonómico que apoye la aprobación del Estatuto Profesional del Periodista
+ # PC-Canarias solicita al Parlamento autonómico que apoye la aprobación del Estatuto Profesional del Periodista
 
 *Madrid, 19 de diciembre de 2003.*
 
