@@ -1,4 +1,4 @@
-#Contra la represión a la plantilla de Antena 3 TV
+# Contra la represión a la plantilla de Antena 3 TV
 
 *Madrid, 7 de octubre de 2003.*
 
