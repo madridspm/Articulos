@@ -1,4 +1,4 @@
-#IU da nuevo impulso al Estatuto Profesional y a la Ley de Derechos Laborales de l@s periodistas con dos Proposiciones de Ley
+# IU da nuevo impulso al Estatuto Profesional y a la Ley de Derechos Laborales de l@s periodistas con dos Proposiciones de Ley
 
 *Madrid, 24 de octubre de 2003.*
 
@@ -8,4 +8,4 @@ La doble propuesta, registrada oficialmente ayer y firmada por el portavoz del G
 
 Aunque el apretado calendario de este final de legislatura (en enero serán disueltas las Cortes para convocar las elecciones generales de marzo) deja poco espacio para la tramitación de las iniciativas del PSOE e IU, su presentación supone un salto cualitativo en nuestra lucha por un Estatuto Profesional. Éste ha entrado ya en sede parlamentaria, el Congreso tendrá que pronunciarse al respecto y siempre, incluso si esta vez no es tenido en consideración, quedará como cimiento para retomar el asunto en la próxima legislatura.
 
-Como hizo tras la iniciativa socialista, el SPM ha dirigido un mensaje de felicitación al Grupo Parlamentario Federal de Izquierda Unida por sus dos Proposiciones de Ley. ''Esta doble iniciativa --subraya el texto-- nos parece de estricta justicia democrática. Además de remediar los injustificables abusos laborales que sufre nuestra profesión, estamos seguros de que será una herramienta clave para garantizar el derecho constitucional de la población española a una información libre y veraz, sin la cual difícilmente podrá formarse una opinión política en libertad y, por tanto, ejercer plenamente su ciudadanía democrática''.
+Como hizo tras la iniciativa socialista, el SPM ha dirigido un mensaje de felicitación al Grupo Parlamentario Federal de Izquierda Unida por sus dos Proposiciones de Ley. "Esta doble iniciativa --subraya el texto-- nos parece de estricta justicia democrática. Además de remediar los injustificables abusos laborales que sufre nuestra profesión, estamos seguros de que será una herramienta clave para garantizar el derecho constitucional de la población española a una información libre y veraz, sin la cual difícilmente podrá formarse una opinión política en libertad y, por tanto, ejercer plenamente su ciudadanía democrática".
