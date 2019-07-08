@@ -1,4 +1,4 @@
-#Falleció el afiliado José María García Merino
+# Falleció el afiliado José María García Merino
 
 Madrid, 24 de octubre de 2003
 
