@@ -1,4 +1,4 @@
-#El Estatuto del Periodista Profesional vuelve a estrellarse en el Congreso contra la mayoría absoluta y la sinrazón del PP
+# El Estatuto del Periodista Profesional vuelve a estrellarse en el Congreso contra la mayoría absoluta y la sinrazón del PP
 
 *Madrid, 9 de diciembre de 2003. (Servimedia y ‘El Mundo Digital’).*
 
@@ -14,7 +14,7 @@ Indicó que, si el PP vota en contra de este tipo de iniciativas, es porque "en 
 
 Asignatura pendiente
 
-En nombre de CiU, Pere Grau defendió la necesidad de encontrar "entre todos" una solución para la situación de los periodistas "a la pieza" y ‘freelance’, pero recalcó que para ello es precisa una negociación con los empresarios, que debería haber sido uno de los elementos para configurar las bases de esta Proposición de Ley.
+En nombre de CiU, Pere Grau defendió la necesidad de encontrar "entre todos" una solución para la situación de los periodistas "a la pieza" y *freelance*, pero recalcó que para ello es precisa una negociación con los empresarios, que debería haber sido uno de los elementos para configurar las bases de esta Proposición de Ley.
 
 Confió en que en la próxima legislatura los grupos parlamentarios sean "capaces de aprobar una asignatura que en esta legislatura no vamos a aprobar", por lo que "tendremos que repetir". Tras abogar por una Subcomisión que estudie a fondo la cuestión, indicó que lo deseable sería presentar la próxima semana una Proposición No de Ley consensuada para pedir al Gobierno un compromiso explícito, fuera de objetivos electorales.
 
