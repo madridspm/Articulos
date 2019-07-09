@@ -1,4 +1,4 @@
-#La FeSP denuncia la telebasura y exige un Estatuto del Periodista Profesional
+# La FeSP denuncia la telebasura y exige un Estatuto del Periodista Profesional
 
 *Madrid, 26 de septiembre de 2004. (Comunicado de la lt;bgt;Junta Ejecutiva Federal de la FesP)
 
