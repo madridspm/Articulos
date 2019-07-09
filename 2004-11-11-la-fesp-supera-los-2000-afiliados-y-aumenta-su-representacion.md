@@ -1,4 +1,4 @@
-#La FeSP supera los 2.000 afiliados y aumenta su representación
+# La FeSP supera los 2.000 afiliados y aumenta su representación
 
 *Madrid, 11 noviembre de 2019*
 
