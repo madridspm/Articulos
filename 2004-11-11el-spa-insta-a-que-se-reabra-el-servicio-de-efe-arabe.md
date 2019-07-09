@@ -1,4 +1,4 @@
-#El SPA insta a que se reabra el servicio de EFE árabe
+# El SPA insta a que se reabra el servicio de EFE árabe
 
 *Madrid 11 de noviembre de 2004*
 
