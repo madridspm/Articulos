@@ -1,4 +1,4 @@
-#Familiares y compañeros de José Couso convocan protestas y homenajes en el primer aniversario de su asesinato
+# Familiares y compañeros de José Couso convocan protestas y homenajes en el primer aniversario de su asesinato
 
 Madrid, 6 de abril de 2004. (Comunicado de la Junta Ejecutiva del SPM)
 
