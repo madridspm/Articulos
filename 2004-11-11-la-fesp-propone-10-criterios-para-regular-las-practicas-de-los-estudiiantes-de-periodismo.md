@@ -1,4 +1,4 @@
-#La FeSP propone 10 criterios para regular las prácticas de los estudiantes de periodismo
+# La FeSP propone 10 criterios para regular las prácticas de los estudiantes de periodismo
 
 *Madrid, 11 de noviembre de 2019*
 
