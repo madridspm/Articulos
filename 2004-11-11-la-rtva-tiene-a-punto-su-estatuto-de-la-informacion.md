@@ -1,4 +1,4 @@
-#La RTVA tiene a punto su Estatuto de Información
+# La RTVA tiene a punto su Estatuto de Información
 
 *adrid, 11 de noviembre de 2004*
 
