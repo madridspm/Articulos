@@ -1,4 +1,4 @@
-#Informe para la Reforma de los Medios Públicos: Resumen y Conclusiones
+# Informe para la Reforma de los Medios Públicos: Resumen y Conclusiones
 
 *Madrid, 21 de febrero de 2005. (Para acceder al Informe completo: http://www.la-moncloa.es/im.pdf).*
 
