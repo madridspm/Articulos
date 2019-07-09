@@ -1,4 +1,4 @@
-#La FeSP responde al editorial de ‘El Mundo’ contra el Estatuto del Periodista Profesional
+# La FeSP responde al editorial de ‘El Mundo’ contra el Estatuto del Periodista Profesional
 
 *Madrid, 3 de diciembre de 2004. (Carta al Director de *El Mundo*).*
 
