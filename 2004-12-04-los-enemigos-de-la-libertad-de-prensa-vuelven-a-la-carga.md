@@ -1,4 +1,4 @@
-#Los enemigos de la libertad de prensa vuelven a la carga
+# Los enemigos de la libertad de prensa vuelven a la carga
 
 *Madrid, 4 de diciembre de 2004.*
 
