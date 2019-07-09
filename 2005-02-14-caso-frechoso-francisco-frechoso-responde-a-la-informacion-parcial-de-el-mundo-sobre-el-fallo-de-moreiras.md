@@ -1,4 +1,4 @@
-#Caso Frechoso: Francisco Frechoso responde a la información parcial de 'El Mundo' sobre el fallo de Moreiras
+# Caso Frechoso: Francisco Frechoso responde a la información parcial de 'El Mundo' sobre el fallo de Moreiras
 
 *Madrid, 14 de febrero de 2005. (Nota informativa del Comité de Empresa de Unedisa, fechada el 11 de febrero).*
 
