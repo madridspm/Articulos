@@ -1,4 +1,4 @@
-#IU responde también a "las tres condiciones" democráticas de la FeSP
+# IU responde también a "las tres condiciones" democráticas de la FeSP
 
 *Madrid, 10 de marzo de 2004. (Mensaje remitido por Gaspar Llamazares al secretario general de la FeSP, Enric Bastardes).*
 
