@@ -1,4 +1,4 @@
-#La web del SPM regresa mejorada
+# La web del SPM regresa mejorada
 
 *, 12 de febrero de 2005.*
 
