@@ -1,4 +1,4 @@
-#Caso Frechoso: Texto íntegro de la sentencia del juez Miguel Moreiras (I): Antecedentes de hecho
+# Caso Frechoso: Texto íntegro de la sentencia del juez Miguel Moreiras (I): Antecedentes de hecho
 
 *Madrid, 14 febrero 2005*
 
