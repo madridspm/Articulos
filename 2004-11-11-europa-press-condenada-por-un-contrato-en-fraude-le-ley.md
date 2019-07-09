@@ -1,4 +1,4 @@
-#Europa Press condenada por un contrato en fraude de ley
+# Europa Press condenada por un contrato en fraude de ley
 
 
 *Madrid 11 de noviembre 2004*
