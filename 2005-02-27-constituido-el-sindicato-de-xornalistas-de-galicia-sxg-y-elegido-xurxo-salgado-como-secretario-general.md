@@ -1,4 +1,4 @@
-#Constituido el Sindicato de Xornalistas de Galicia (SXG) y elegido Xurxo Salgado como secretario general
+# Constituido el Sindicato de Xornalistas de Galicia (SXG) y elegido Xurxo Salgado como secretario general
 
 *Madrid, 27 de febrero de 2005.*
 
