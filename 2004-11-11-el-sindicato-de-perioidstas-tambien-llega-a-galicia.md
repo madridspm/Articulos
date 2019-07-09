@@ -1,4 +1,4 @@
-#El sindicato de periodistas también llega a Galicia
+# El sindicato de periodistas también llega a Galicia
 
 *Madrid. 11 de noviembre de 2004*
 
