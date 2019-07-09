@@ -1,4 +1,4 @@
-#El SPM participará, el domingo 15 a mediodía, en la Manifestación por la Paz
+# El SPM participará, el domingo 15 a mediodía, en la Manifestación por la Paz
 
 *Madrid, 11 de febrero de 2004.*
 
