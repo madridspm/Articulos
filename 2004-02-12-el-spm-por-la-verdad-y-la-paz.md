@@ -1,4 +1,4 @@
-#EL SPM por la verdad y la paz
+# EL SPM por la verdad y la paz
 
 *Madrid, 12 de febrero de 2004 (cartel de Antonio Peiró)*
 
