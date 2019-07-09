@@ -1,4 +1,4 @@
-#Ya puedes leer y descargarte en PDF el número 17 de Luz y Taquígrafos
+# Ya puedes leer y descargarte en PDF el número 17 de Luz y Taquígrafos
 
 *Madrid,5 de noviembre de 2004*
 
