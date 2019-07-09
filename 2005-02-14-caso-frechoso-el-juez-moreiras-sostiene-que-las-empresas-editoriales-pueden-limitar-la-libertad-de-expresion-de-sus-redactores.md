@@ -1,4 +1,4 @@
-#Caso Frechoso: El juez Moreiras sostiene que las empresas editoriales pueden limitar la libertad de expresión de sus redactores
+# Caso Frechoso: El juez Moreiras sostiene que las empresas editoriales pueden limitar la libertad de expresión de sus redactores
 
 *Madrid, 14 de febrero de 2005.*
 
