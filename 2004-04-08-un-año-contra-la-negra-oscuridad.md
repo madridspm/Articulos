@@ -1,4 +1,4 @@
-#Un año contra la negra oscuridad
+# Un año contra la negra oscuridad
 
 *Madrid, 8 de abril de 2004. (Antonio Peiró, vicesecretario general del SPM).*
 
