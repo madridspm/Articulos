@@ -1,4 +1,4 @@
-#El triunfo de la izquierda abre la puerta al Estatuto Profesional, la Ley de Derechos Laborales y unos Medios Públicos de tod@s
+# El triunfo de la izquierda abre la puerta al Estatuto Profesional, la Ley de Derechos Laborales y unos Medios Públicos de tod@s
 
 *Madrid,17 de marzo de 2004. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
