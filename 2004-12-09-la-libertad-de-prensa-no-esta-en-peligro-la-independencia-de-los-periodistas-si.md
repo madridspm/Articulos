@@ -1,4 +1,4 @@
-#La libertad de prensa no está en peligro; la independencia de los periodistas, sí
+# La libertad de prensa no está en peligro; la independencia de los periodistas, sí
 
 *Madrid,9 de diciembre de 2004.*
 
