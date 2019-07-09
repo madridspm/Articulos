@@ -1,4 +1,4 @@
-#La FeSP rechaza que un periodista esté obligado a coincidir con la línea editorial de su medio
+# La FeSP rechaza que un periodista esté obligado a coincidir con la línea editorial de su medio
 
 Santiago de Compostela, 27 de febrero de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).
 
