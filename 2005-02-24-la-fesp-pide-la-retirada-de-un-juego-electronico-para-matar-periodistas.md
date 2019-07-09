@@ -1,4 +1,4 @@
-#La FeSP pide la retirada de un juego electrónico para matar periodistas
+# La FeSP pide la retirada de un juego electrónico para matar periodistas
 
 *Madrid, 24 de febrero de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
