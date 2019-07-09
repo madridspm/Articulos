@@ -1,4 +1,4 @@
-#Caso Frechoso: Texto íntegro de la sentencia del juez Miguel Moreiras (y III) [Fallo]
+# Caso Frechoso: Texto íntegro de la sentencia del juez Miguel Moreiras (y III) [Fallo]
 
 *Madrid, 14 de febrero 2005*
 
