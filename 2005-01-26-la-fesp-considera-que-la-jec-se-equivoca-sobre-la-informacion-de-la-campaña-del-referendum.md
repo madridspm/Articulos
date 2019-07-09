@@ -1,4 +1,4 @@
-#La FeSP considera que la JEC se equivoca sobre la información de la campaña del referéndum
+# La FeSP considera que la JEC se equivoca sobre la información de la campaña del referéndum
 
 *Madrid, 26 de enero de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP)*
 
