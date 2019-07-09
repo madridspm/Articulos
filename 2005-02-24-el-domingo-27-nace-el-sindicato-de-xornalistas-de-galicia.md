@@ -1,4 +1,4 @@
-#El domingo 27 nace el Sindicato de Xornalistas de Galicia
+# El domingo 27 nace el Sindicato de Xornalistas de Galicia
 
 *Madrid, 24 de febrero de 2005.*
 
