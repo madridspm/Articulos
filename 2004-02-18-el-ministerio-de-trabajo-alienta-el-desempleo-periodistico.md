@@ -1,4 +1,4 @@
-#El Ministerio de Trabajo "alienta" el desempleo periodístico
+# El Ministerio de Trabajo "alienta" el desempleo periodístico
 
 *Madrid, 18 de febrero de 2004. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
