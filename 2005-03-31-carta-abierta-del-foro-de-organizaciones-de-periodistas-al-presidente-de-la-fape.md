@@ -1,4 +1,4 @@
-#Carta abierta del Foro de Organizaciones de Periodistas al presidente de la FAPE
+# Carta abierta del Foro de Organizaciones de Periodistas al presidente de la FAPE
 
 *Madrid, 31 de marzo de 2005*
 
