@@ -1,4 +1,4 @@
-#Colaborador de prensa, comodín hasta la muerte
+# Colaborador de prensa, comodín hasta la muerte
 
 *Madrid, 25 de mayo de 2005 (Elena de Regoyos-Periodista Digital)*
 
