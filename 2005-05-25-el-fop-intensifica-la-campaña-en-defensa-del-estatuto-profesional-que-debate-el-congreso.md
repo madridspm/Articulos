@@ -1,4 +1,4 @@
-#El FOP intensifica la campaña en defensa del Estatuto Profesional que debate el Congreso
+# El FOP intensifica la campaña en defensa del Estatuto Profesional que debate el Congreso
 
 *Valencia, 25 de mayo de 2005. (Comunicado del Foro de Organizaciones de Periodistas).*
 
