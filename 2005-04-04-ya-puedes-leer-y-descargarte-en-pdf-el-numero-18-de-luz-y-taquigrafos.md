@@ -1,4 +1,4 @@
-#Ya puedes leer y descargarte en PDF el número 18 de Luz y Taquígrafos
+# Ya puedes leer y descargarte en PDF el número 18 de Luz y Taquígrafos
 
 *Madrid,4 de abril de 2005*
 
