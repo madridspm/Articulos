@@ -1,4 +1,4 @@
-#Estatuto Profesional y lucha contra la precariedad periodística centrarán este sábado el I Congreso de la FeSP
+# Estatuto Profesional y lucha contra la precariedad periodística centrarán este sábado el I Congreso de la FeSP
 
 *Madrid, 27 de mayo de 2005.*
 
