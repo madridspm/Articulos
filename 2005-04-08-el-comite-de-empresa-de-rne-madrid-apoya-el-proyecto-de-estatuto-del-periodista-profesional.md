@@ -1,4 +1,4 @@
-#El Comité de Empresa de RNE-Madrid apoya el proyecto de Estatuto del Periodista Profesional
+# El Comité de Empresa de RNE-Madrid apoya el proyecto de Estatuto del Periodista Profesional
 
 *Madrid, 8 de abril de 2005*
 
