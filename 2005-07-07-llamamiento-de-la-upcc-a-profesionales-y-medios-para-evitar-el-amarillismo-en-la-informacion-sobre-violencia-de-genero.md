@@ -1,4 +1,4 @@
-#Llamamiento de la UPCC a profesionales y medios para “evitar el amarillismo” en la información sobre violencia de género
+# Llamamiento de la UPCC a profesionales y medios para “evitar el amarillismo” en la información sobre violencia de género
 
 Madrid, 7 de julio de 2005.
 
