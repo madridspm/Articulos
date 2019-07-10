@@ -1,4 +1,4 @@
-#Dos años del asesinato de José Couso, dos años de lucha sin descanso
+# Dos años del asesinato de José Couso, dos años de lucha sin descanso
 
 *Madrid, 07 abril 2005
 
