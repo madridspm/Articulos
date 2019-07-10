@@ -1,4 +1,4 @@
-#Denuncian a una agencia de noticias 'del corazón' por la muerte en accidente de una colaboradora
+# Denuncian a una agencia de noticias 'del corazón' por la muerte en accidente de una colaboradora
 
 *Madrid, 14 de junio de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
