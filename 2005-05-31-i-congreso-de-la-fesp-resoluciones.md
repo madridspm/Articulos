@@ -1,4 +1,4 @@
-#I Congreso de la FeSP: Resoluciones
+# I Congreso de la FeSP: Resoluciones
 
 Apoyo al Estatuto Profesional y a la Ley de Derechos Laborales
 
