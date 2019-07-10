@@ -1,4 +1,4 @@
-#Frechoso presenta recurso de amparo ante el Tribunal Constitucional
+# Frechoso presenta recurso de amparo ante el Tribunal Constitucional
 
 *Madrid, 6 de abril de 2005*
 
