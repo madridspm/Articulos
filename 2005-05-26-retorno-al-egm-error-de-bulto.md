@@ -1,4 +1,4 @@
-#Retorno al EGM, error de bulto
+# Retorno al EGM, error de bulto
 
 *Madrid, 26 de mayo de 2005 (Hoja informativa de la Sección Sindical del SPM en RNE).*
 
