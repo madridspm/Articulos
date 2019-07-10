@@ -1,4 +1,4 @@
-#Sin dinero... y sin Estatuto
+# Sin dinero... y sin Estatuto
 
 Madrid, 7 de marzo de 2005. (Hoja Informativa de la Sección Sindical del SPM-RNE).
 
