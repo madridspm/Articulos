@@ -1,4 +1,4 @@
-#La manipulación la permite el modelo de Medios Públicos: hay que cambiarlo
+# La manipulación la permite el modelo de Medios Públicos: hay que cambiarlo
 
 *Madrid, 17 de marzo de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
