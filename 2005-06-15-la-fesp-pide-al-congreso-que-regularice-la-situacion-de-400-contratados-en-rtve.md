@@ -1,4 +1,4 @@
-#La FeSP pide al Congreso que regularice la situación de 400 contratados en RTVE
+# La FeSP pide al Congreso que regularice la situación de 400 contratados en RTVE
 
 *Madrid, 15 de junio de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
