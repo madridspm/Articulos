@@ -1,4 +1,4 @@
-#El SPM, ante la desestimación de unademanda por acoso laboral en Servimedia
+# El SPM, ante la desestimación de unademanda por acoso laboral en Servimedia
 
 *Madrid, 17 de marzo de 2005. (Comunicado de la Junta Ejecutiva del SPM).*
 
