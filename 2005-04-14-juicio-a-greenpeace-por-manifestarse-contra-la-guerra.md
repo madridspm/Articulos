@@ -1,4 +1,4 @@
-#Juicio a Greenpeace por manifestarse contra la guerra
+# Juicio a Greenpeace por manifestarse contra la guerra
 
 Madrid, 14 de abril de 2005
 
