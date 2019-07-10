@@ -1,4 +1,4 @@
-#El juez absuelve a tres encausados de Greenpeace y rebaja las penas al capitán del 'Rainbow Warrior' y a un tripulante
+# El juez absuelve a tres encausados de Greenpeace y rebaja las penas al capitán del 'Rainbow Warrior' y a un tripulante
 
 *Madrid, 17 de mayo de 2005. (Comunicado de Greenpeace).*
 
