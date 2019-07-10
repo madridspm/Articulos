@@ -1,4 +1,4 @@
-#El FOP reafirma su defensa del Estatuto Profesionalen nombre de l@s periodistas del Estado español
+# El FOP reafirma su defensa del Estatuto Profesionalen nombre de l@s periodistas del Estado español
 
 Barcelona, 15 de marzo de 2005
 
