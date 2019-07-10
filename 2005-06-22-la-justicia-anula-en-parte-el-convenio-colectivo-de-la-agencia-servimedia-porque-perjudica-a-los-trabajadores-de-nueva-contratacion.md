@@ -1,4 +1,4 @@
-#La Justicia anula en parte el Convenio Colectivo de la agencia Servimedia porque perjudica a los trabajadores de nueva contratación
+# La Justicia anula en parte el Convenio Colectivo de la agencia Servimedia porque perjudica a los trabajadores de nueva contratación
 
 *Madrid, 22 de junio de 2005. (Comunicado de la Junta Ejecutiva del SPM).*
 
