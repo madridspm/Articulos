@@ -1,4 +1,4 @@
-#Los Sindicatos de Periodistas reclaman medidas contra la precariedad de su profesión
+# Los Sindicatos de Periodistas reclaman medidas contra la precariedad de su profesión
 
 *Madrid, 29 de mayo de 2005*
 
