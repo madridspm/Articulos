@@ -1,4 +1,4 @@
-#Convocado el I Congreso Ordinario de la FeSP para el 28 de mayo en Madrid
+# Convocado el I Congreso Ordinario de la FeSP para el 28 de mayo en Madrid
 
 *Madrid, 24 de marzo de 2005*
 
