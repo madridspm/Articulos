@@ -1,4 +1,4 @@
-#Sacar punta al cambio
+# Sacar punta al cambio
 
 *Madrid, 4 de mayo de 2005 (Hoja informativa de la Sección Sindical del SPM-RNE).*
 
