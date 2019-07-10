@@ -1,4 +1,4 @@
-#RNE no manipuló ni las cifras ni la información sobre la manifestación del sábado en Madrid
+# RNE no manipuló ni las cifras ni la información sobre la manifestación del sábado en Madrid
 
 *Madrid, 6 de junio de 2005 (nota del SPM-RNE)*
 
