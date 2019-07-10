@@ -1,4 +1,4 @@
-#La FeSP pide que 2005 sea el año del Estatuto del Periodista y de la reforma democrática de los Medios Públicos
+# La FeSP pide que 2005 sea el año del Estatuto del Periodista y de la reforma democrática de los Medios Públicos
 
 *Madrid, 30 de abril de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
