@@ -1,4 +1,4 @@
-#El Consejo de Administración de RTVE pide dictamen sobre información y espacios gratuitos en campaña electoral
+# El Consejo de Administración de RTVE pide dictamen sobre información y espacios gratuitos en campaña electoral
 
 *Madrid, 19 de mayo de 2005 (agencias)*
 
