@@ -1,4 +1,4 @@
-#CC.OO. considera 'muy negativa' la alternativa de la FAPE al Estatuto del Periodista
+# CC.OO. considera 'muy negativa' la alternativa de la FAPE al Estatuto del Periodista
 
 Madrid, 12 de marzo de 2005 (Noticia difundida por EP).
 
