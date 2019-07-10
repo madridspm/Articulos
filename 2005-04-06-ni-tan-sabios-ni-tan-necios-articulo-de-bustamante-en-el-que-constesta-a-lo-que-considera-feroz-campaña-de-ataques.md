@@ -1,4 +1,4 @@
-#"Ni tan sabios, ni tan necios". Artículo de Bustamante en el que contesta a lo que considera feroz campaña de ataques
+# "Ni tan sabios, ni tan necios". Artículo de Bustamante en el que contesta a lo que considera feroz campaña de ataques
 
 *Madrid, 6 de abril de 2005 (El País)*
 
