@@ -1,4 +1,4 @@
-#Telecinco y Antena 3 reducirían sus ingresos poco más del 2% con otra televisión en abierto
+# Telecinco y Antena 3 reducirían sus ingresos poco más del 2% con otra televisión en abierto
 
 *Madrid, 4 de abril de 2005 (Europa Press)*
 
