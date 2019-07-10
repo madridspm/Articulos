@@ -1,4 +1,4 @@
-#Paros en El Mundo para presionar “por un convenio digno”
+# Paros en El Mundo para presionar “por un convenio digno”
 
 *Madrid, 25 de abril de 2005*
 
