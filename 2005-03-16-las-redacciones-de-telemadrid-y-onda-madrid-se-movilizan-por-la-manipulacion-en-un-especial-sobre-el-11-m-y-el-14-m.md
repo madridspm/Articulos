@@ -1,4 +1,4 @@
-#Las  de Telemadrid y Onda Madrid se movilizan por la manipulación en un especial sobre el 11-M y el 14-M
+# Las  de Telemadrid y Onda Madrid se movilizan por la manipulación en un especial sobre el 11-M y el 14-M
 redacciones
 *Pozuelo de Alarcón, 16 de marzo de 2005. (Comunicado No en nuestro nombre, aprobado por la asamblea de Redacción en Telemadrid y Onda Madrid).*
 
