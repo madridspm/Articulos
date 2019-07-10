@@ -1,4 +1,4 @@
-#I Congreso de la FeSP: Toda la militancia de los Sindicatos de la FeSP tendrá voz en el Congreso federal
+# I Congreso de la FeSP: Toda la militancia de los Sindicatos de la FeSP tendrá voz en el Congreso federal
 
 *Madrid, 8 de mayo de 2005.*
 
