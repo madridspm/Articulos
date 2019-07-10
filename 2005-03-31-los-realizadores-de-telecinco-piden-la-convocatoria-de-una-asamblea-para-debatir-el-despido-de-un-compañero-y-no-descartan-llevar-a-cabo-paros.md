@@ -1,4 +1,4 @@
-#Los realizadores de Telecinco piden la convocatoria de una asamblea para debatir el despido de un compañero y no descartan llevar a cabo paros
+# Los realizadores de Telecinco piden la convocatoria de una asamblea para debatir el despido de un compañero y no descartan llevar a cabo paros
 
 *Madrid, 31 de marzo de 2005*
 
