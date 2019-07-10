@@ -1,4 +1,4 @@
-#La plantilla de ‘El Mundo’ reivindica un convenio digno en la manifestación madrileña del 1º de Mayo
+# La plantilla de ‘El Mundo’ reivindica un convenio digno en la manifestación madrileña del 1º de Mayo
 
 *Madrid, 1 de mayo de 2005.*
 
