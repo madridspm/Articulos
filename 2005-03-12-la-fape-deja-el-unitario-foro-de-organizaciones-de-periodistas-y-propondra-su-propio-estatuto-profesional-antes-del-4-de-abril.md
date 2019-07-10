@@ -1,4 +1,4 @@
-#La FAPE deja el unitario Foro de Organizaciones de Periodistas y propondrá su propio Estatuto Profesional antes del 4 de abril
+# La FAPE deja el unitario Foro de Organizaciones de Periodistas y propondrá su propio Estatuto Profesional antes del 4 de abril
 
 Madrid, 12 de marzo de 2005. (Nota informativa de la Federación de Asociaciones de la Prensa).
 
