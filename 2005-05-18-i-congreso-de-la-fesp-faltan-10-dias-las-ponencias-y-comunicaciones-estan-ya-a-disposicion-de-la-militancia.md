@@ -1,4 +1,4 @@
-#I Congreso de la FeSP (faltan 10 días). Las ponencias y Comunicaciones están ya a disposición de la militancia
+# I Congreso de la FeSP (faltan 10 días). Las ponencias y Comunicaciones están ya a disposición de la militancia
 
 *Madrid, 18 de mayo de 2005.*
 
