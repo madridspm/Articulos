@@ -1,4 +1,4 @@
-#Reforma del sector audiovisual aprobada por el Consejo de Ministros
+# Reforma del sector audiovisual aprobada por el Consejo de Ministros
 
 Madrid, 24 de junio de 2005 (referencia oficial)
 
