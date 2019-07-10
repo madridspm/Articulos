@@ -1,4 +1,4 @@
-#Plantilla esclava paralela... también en la pública
+# Plantilla esclava paralela... también en la pública
 
 *Madrid, 30 de mayo de 2005*
 
