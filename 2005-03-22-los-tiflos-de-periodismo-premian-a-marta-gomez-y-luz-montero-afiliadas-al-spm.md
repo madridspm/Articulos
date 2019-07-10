@@ -1,4 +1,4 @@
-#Los Tiflos de periodismo premian a Marta Gómez y Luz Montero, afiliadas al SPM
+# Los Tiflos de periodismo premian a Marta Gómez y Luz Montero, afiliadas al SPM
 
 *Madrid, 22 de marzo de 2005*
 
