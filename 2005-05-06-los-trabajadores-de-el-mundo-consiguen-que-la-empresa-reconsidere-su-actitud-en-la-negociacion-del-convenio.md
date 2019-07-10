@@ -1,4 +1,4 @@
-#Los trabajadores de *El Mundo* consiguen que la empresa reconsidere su actitud en la negociación del convenio
+# Los trabajadores de *El Mundo* consiguen que la empresa reconsidere su actitud en la negociación del convenio
 
 *Madrid, 6 de mayo de 2005.*
 
