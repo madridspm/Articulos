@@ -1,4 +1,4 @@
-#La FeSP rechaza el encarcelamiento de una periodistadel *New York Times* por no revelar sus fuentes
+# La FeSP rechaza el encarcelamiento de una periodistadel *New York Times* por no revelar sus fuentes
 
 *Madrid, 10 de julio de 2005 (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
