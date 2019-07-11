@@ -1,4 +1,4 @@
-#Torre Cervigón defiende las líneas básicas del proyecto de Estatuto del Periodista
+# Torre Cervigón defiende las líneas básicas del proyecto de Estatuto del Periodista
 
 *Madrid, 5 de octubre de 2005. (SPM y EP).*
 
