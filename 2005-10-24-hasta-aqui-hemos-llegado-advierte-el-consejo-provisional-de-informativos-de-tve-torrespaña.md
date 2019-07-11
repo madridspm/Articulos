@@ -1,6 +1,6 @@
-#''Hasta aquí hemos llegado'', advierte el Consejo Provisional de Informativos de TVE-Torrespaña
+# "Hasta aquí hemos llegado", advierte el Consejo Provisional de Informativos de TVE-Torrespaña
 
-Madrid, 24 de octubre de 2005. (Comunicado nº 26 del CPI de TVE-Torrespaña).
+*Madrid, 24 de octubre de 2005. (Comunicado nº 26 del CPI de TVE-Torrespaña).*
 
 RTVE ha llegado a un punto crítico de su historia. En los próximos meses, quizá en las próximas semanas, se van tomar decisiones que marcarán el futuro de la empresa. Todo indica que estas decisiones se están tomando en las cúspides del poder, para luego hacerlas aceptables para los trabajadores y la sociedad. Al socaire de las exigencias de Bruselas se puede estar diseñando un modelo de radiotelevisión pública irrelevante, con escasa influencia y con una dimensión muy reducida. No es ese el rumbo indicado por el Informe de los Sabios. De ser así, no se respetaría tampoco el cauce fijado por el Proyecto de Ley (válido, aunque mejorable) y se hurtaría al Parlamento definir el modelo de la Radiotelevisión Pública al imponer un plan de saneamiento vinculado a la subvención presupuestaria. Pero el punto de partida ya lo conocemos: ''Todo el mundo sabe que sobran personas y medios'' (Martínez Robles).
 
@@ -34,11 +34,8 @@ Poco a poco se ha producido un cambio generacional en la Redacción. Se presenta
 
 Qué ha hecho el CPI
 
-
-
 El CPI ha pretendido mantener una crítica equilibrada y una interlocución con la Dirección. Sentimos que eso no ha servido de mucho. Quizá nuestro gran error haya sido no mantener una mayor movilización, foros permanentes de discusión y mecanismos más ágiles para recoger críticas puntuales. Tampoco hemos sido capaces de desarrollar normas de buenas y malas prácticas, como habíamos prometido.
 
 ¿Qué hacemos?
-
 
 Fuimos elegidos con carácter provisional con el apoyo de medio millar de compañeros. Aquella iniciativa respondía a una movilización de emergencia para sacar a nuestros informativos del descrédito al que la manipulación del equipo anterior condujo a los Servicios Informativos. Han sido 20 meses muy difíciles para los que componemos el CPI. Sentimos que nuestra energía se agota. Pero no hay un proceso de recambio. Pese a todo pensamos que el proyecto de un Consejo de Informativos vale la pena, que es una pieza más para unos informativos independientes al servicio del público. Por eso dudamos en disolvernos. Y, aunque no vamos a hacerlo en este momento crítico, sí que vamos a dar un plazo inexcusable. Y así, instamos a la Dirección a dar un paso determinante hacia la aprobación de un Estatuto y la consiguiente convocatoria de unos Consejos de Informativos plenamente legales. Si no lo hace antes de fin de año, entenderemos que, pese a sus declaraciones de apoyo, sólo le interesa seguir utilizando el señuelo de los Consejos y el Estatuto, pero no va a ponerlos en marcha. Y, en ese caso, haremos mutis por el foro.
