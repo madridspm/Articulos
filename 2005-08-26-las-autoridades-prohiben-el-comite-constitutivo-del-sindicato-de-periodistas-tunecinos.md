@@ -1,4 +1,4 @@
-#Las autoridades prohíben el Comité constitutivo del Sindicato de Periodistas Tunecinos
+# Las autoridades prohíben el Comité constitutivo del Sindicato de Periodistas Tunecinos
 
 *Madrid, 26 de agosto 2005*.
 
