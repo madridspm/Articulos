@@ -1,4 +1,4 @@
-#Ciento veinte trabajadores de *El Mundo* ganan una demanda a la empresa sobre vales de comida
+# Ciento veinte trabajadores de *El Mundo* ganan una demanda a la empresa sobre vales de comida
 
 *Madrid, 8 de julio de 2005.*
 
