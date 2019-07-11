@@ -1,4 +1,4 @@
-#Ante la inminente aprobación por el Gobierno de los proyectos de ley para la reforma del sector audiovisual
+# Ante la inminente aprobación por el Gobierno de los proyectos de ley para la reforma del sector audiovisual
 
 POR UNA REFORMA DEMOCRATICA DE LOS MEDIOS PUBLICOS DE COMUNICACION
 
