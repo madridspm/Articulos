@@ -1,4 +1,4 @@
-#Gestevisión Telecinco convoca paros intermitentes por el bloqueo negociador del Convenio
+# Gestevisión Telecinco convoca paros intermitentes por el bloqueo negociador del Convenio
 
 *Madrid, 26 de octubre de 2005.*
 
