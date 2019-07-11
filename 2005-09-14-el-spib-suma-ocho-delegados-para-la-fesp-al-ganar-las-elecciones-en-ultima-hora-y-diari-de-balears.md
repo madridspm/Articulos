@@ -1,4 +1,4 @@
-#El SPIB suma ocho delegados para la FeSP al ganar las elecciones en *Última Hora* y *Diari de Balears*
+# El SPIB suma ocho delegados para la FeSP al ganar las elecciones en *Última Hora* y *Diari de Balears*
 
 *Madrid, 14 de septiembre de 2005.*
 
