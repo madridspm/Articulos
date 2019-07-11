@@ -1,4 +1,4 @@
-#Telemadrid lanza sin permiso su segundo canal, laOtra, en un nuevo desafío de Aguirre al Gobierno central
+# Telemadrid lanza sin permiso su segundo canal, laOtra, en un nuevo desafío de Aguirre al Gobierno central
 
 *Madrid, 16 de septiembre de 2005.*
 
