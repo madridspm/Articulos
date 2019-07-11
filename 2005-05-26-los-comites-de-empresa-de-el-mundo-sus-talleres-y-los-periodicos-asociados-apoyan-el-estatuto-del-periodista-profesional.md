@@ -1,4 +1,4 @@
-#Los Comités de Empresa de 'El Mundo', sus talleres y los periódicos asociados apoyan el Estatuto del Periodista Profesional
+# Los Comités de Empresa de 'El Mundo', sus talleres y los periódicos asociados apoyan el Estatuto del Periodista Profesional
 
 *Madrid, 26 de mayo de 2005.*
 
