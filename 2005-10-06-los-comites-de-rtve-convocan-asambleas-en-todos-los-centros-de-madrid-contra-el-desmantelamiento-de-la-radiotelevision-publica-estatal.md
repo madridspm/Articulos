@@ -1,4 +1,4 @@
-#Los Comités de Empresa de RTVE convocan asambleas en todos los centros de Madrid contra el desmantelamiento de la radiotelevisión pública estatal
+# Los Comités de Empresa de RTVE convocan asambleas en todos los centros de Madrid contra el desmantelamiento de la radiotelevisión pública estatal
 
 *Madrid, 6 de octubre de 2005 (comunicado comités de empresa)*
 
