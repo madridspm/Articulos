@@ -1,4 +1,4 @@
-#González Huesa, nombrado director general de Servimedia
+# González Huesa, nombrado director general de Servimedia
 
 *Madrid, 21 de septiembre de 2005.*
 
