@@ -1,4 +1,4 @@
-#De nuevo, contra la agresión a un fotógrafo
+# De nuevo, contra la agresión a un fotógrafo
 
 *Barcelona, 10 de agosto de 2005.Sindicat De Periodistes De Catalunya*
 
