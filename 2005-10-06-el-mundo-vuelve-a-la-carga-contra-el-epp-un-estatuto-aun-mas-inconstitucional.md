@@ -1,6 +1,6 @@
 # *El Mundo* vuelve a la carga contra el EPP: *Un Estatuto aún más inconstitucional*
 
-*6 de octubre de 2005. (Editorial del diario ‘* Mundo).*
+*6 de octubre de 2005. (Editorial del diario El Mundo).*
 
 Será una mera casualidad, pero desde ayer mismo se está empezando a debatir en el Congreso de los Diputados un Estatuto que no es el de Cataluña y que llega cargado de todavía más estigmas de presunta inconstitucionalidad que un texto catalán con el que rivaliza a disparates. Se trata del proyecto de Estatuto del Periodista Profesional, presentado hace ya año y medio por Izquierda Unida y apoyado inicialmente por el PSOE. Largamente paralizado en algún cajón de la Cámara, el proyecto que inicia al fin su andadura en la Comisión Constitucional supone un retorno a la visión franquista de la profesión periodística, corregida y agravada con dosis pseudoprogresistas de aquel Nuevo Orden Mundial de la Información con el que la Unesco pretendió antaño embridar el periodismo.
 
