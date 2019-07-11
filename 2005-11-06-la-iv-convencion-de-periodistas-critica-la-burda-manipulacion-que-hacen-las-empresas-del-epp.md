@@ -1,6 +1,6 @@
-#La IV Convención de Periodistas critica la ''burda manipulación'' que hacen las empresas del EPP
+# La IV Convención de Periodistas critica la ''burda manipulación'' que hacen las empresas del EPP
 
-####Los reunidos pidierona los parlamentarios que tramiten también una ley de derechos laborales, para garantizar la independencia de los profesionales de la información
+**Los reunidos pidierona los parlamentarios que tramiten también una ley de derechos laborales, para garantizar la independencia de los profesionales de la información**
 
 *Madrid, 6 de noviembre de 2005*
 
