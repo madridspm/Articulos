@@ -1,4 +1,4 @@
-#La FeSP rechaza que ‘El Mundo’ deba entregar al juez documentos del 11-M
+# La FeSP rechaza que ‘El Mundo’ deba entregar al juez documentos del 11-M
 
 *Madrid, 29 de julio de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
