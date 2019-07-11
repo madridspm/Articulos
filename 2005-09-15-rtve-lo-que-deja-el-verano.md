@@ -1,4 +1,4 @@
-#RTVE: Lo que deja el verano
+# RTVE: Lo que deja el verano
 
 *Madrid, 15 de septiembre de 2005. (Hoja Informativa de la Sección Sindical del SPM-RNE).*
 
