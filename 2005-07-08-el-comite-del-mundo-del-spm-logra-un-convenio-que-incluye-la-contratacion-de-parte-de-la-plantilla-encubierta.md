@@ -1,4 +1,4 @@
-#El Comité de *El Mundo*, del SPM, logra un Convenio que incluye la contratación de parte de la plantilla encubierta
+# El Comité de *El Mundo*, del SPM, logra un Convenio que incluye la contratación de parte de la plantilla encubierta
 
 *Madrid, 8 de julio de 2005.*
 
