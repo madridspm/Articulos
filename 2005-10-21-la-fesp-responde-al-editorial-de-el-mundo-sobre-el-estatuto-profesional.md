@@ -1,10 +1,8 @@
-#La FeSP responde al editorial de 'El Mundo' sobre el Estatuto Profesional
+# La FeSP responde al editorial de 'El Mundo' sobre el Estatuto Profesional
 
 *El Mundo* publicó el 6 de octubre un editorial sobre el Proyecto de Ley de Estatuto del Periodista Profesional que contenía varias afirmaciones inexactas. Enric Bastardes, secretario general de la FeSP –a la que pertenece el SPM- envió una carta al director de ese periódico para aclarar tales inexactitudes. Pasados varios días sin que la carta se haya publicado, la difundimos para su conocimiento público.
 
-***
-
-Madrid,octubre de 2005.
+*Madrid,octubre de 2005.*
 
 Sr. Director:
 
