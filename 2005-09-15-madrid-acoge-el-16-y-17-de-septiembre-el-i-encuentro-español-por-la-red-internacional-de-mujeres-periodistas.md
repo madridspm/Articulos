@@ -1,4 +1,4 @@
-#Madrid acoge el 16 y 17 de septiembre el I Encuentro Español por la Red Internacional de Mujeres Periodistas
+# Madrid acoge el 16 y 17 de septiembre el I Encuentro Español por la Red Internacional de Mujeres Periodistas
 
 *Madrid, 15 de septiembre de 2005.*
 
