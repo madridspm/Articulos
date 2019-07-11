@@ -1,4 +1,4 @@
-#Fotógrafos del SPC exponen en el prestigioso "Festival Off Du Photoreportage" (Visa Off) de Perpignan
+# Fotógrafos del SPC exponen en el prestigioso "Festival Off Du Photoreportage" (Visa Off) de Perpignan
 
 *Madrid, 25 de agosto 2005*
 
