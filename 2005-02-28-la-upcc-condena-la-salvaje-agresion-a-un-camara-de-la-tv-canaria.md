@@ -1,4 +1,4 @@
-#La UPCC condena la salvaje agresión a un cámara de la TV Canaria
+# La UPCC condena la salvaje agresión a un cámara de la TV Canaria
 
 Madrid, 28 de febrero de 2005. (Comunicado de la UPCC, miembro de la FeSP).
 
