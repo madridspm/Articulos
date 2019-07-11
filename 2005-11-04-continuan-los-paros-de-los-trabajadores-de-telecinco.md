@@ -1,4 +1,4 @@
-#Continúan los paros de los trabajadores de Telecinco
+# Continúan los paros de los trabajadores de Telecinco
 
 *Madrid, 4 de noviembre de 2005*
 
