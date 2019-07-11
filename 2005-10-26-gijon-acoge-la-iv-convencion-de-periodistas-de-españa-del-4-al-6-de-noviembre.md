@@ -1,8 +1,8 @@
-#Gijón acoge la IV Convención de Periodistas de España del 4 al 6 de noviembre
+# Gijón acoge la IV Convención de Periodistas de España del 4 al 6 de noviembre
 
 *Madrid, 26 de octubre de 2005.*
 
-''La información al servicio de la ciudadanía'' es el lema de la IV Convención de Periodistas de España, que tiene lugar en Gijón los días 4, 5 y 6 de noviembre. La preparación del encuentro lleva la firma unitaria del Foro de Organizaciones de Periodistas, ntegrado por la Agrupación General de Periodistas de UGT, la Agrupación de Periodistas de CC.OO., la Federación de Sindicatos de Periodistas (FeSP), el Colexio de Xornalistas de Galicia y el Col.legi de Periodistes de Catalunya.
+"La información al servicio de la ciudadanía" es el lema de la IV Convención de Periodistas de España, que tiene lugar en Gijón los días 4, 5 y 6 de noviembre. La preparación del encuentro lleva la firma unitaria del Foro de Organizaciones de Periodistas, ntegrado por la Agrupación General de Periodistas de UGT, la Agrupación de Periodistas de CC.OO., la Federación de Sindicatos de Periodistas (FeSP), el Colexio de Xornalistas de Galicia y el Col.legi de Periodistes de Catalunya.
 
 Viernes, 4 de noviembre
 
