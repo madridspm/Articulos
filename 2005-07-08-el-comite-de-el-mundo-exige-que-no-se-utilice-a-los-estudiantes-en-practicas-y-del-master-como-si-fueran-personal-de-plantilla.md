@@ -1,4 +1,4 @@
-#El Comité de 'El Mundo' exige que no se utilice a los estudiantes en prácticas y del Máster 'como si fueran personal de plantilla'
+# El Comité de 'El Mundo' exige que no se utilice a los estudiantes en prácticas y del Máster 'como si fueran personal de plantilla'
 
 *Madrid, 8 de julio de 2005.*
 
