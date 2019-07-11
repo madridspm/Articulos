@@ -1,4 +1,4 @@
-#Ya puedes leer y descargarte en PDF el número 19 de Luz y Taquígrafos
+# Ya puedes leer y descargarte en PDF el número 19 de Luz y Taquígrafos
 
 *Madrid, 9 de julio de 2005*
 
