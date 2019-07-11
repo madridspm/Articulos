@@ -1,4 +1,4 @@
-#El Sindicato de Xornalistas de Galicia pide a la Xunta que apoye la creación de empleo digno en la concesión de emisoras digitales
+# El Sindicato de Xornalistas de Galicia pide a la Xunta que apoye la creación de empleo digno en la concesión de emisoras digitales
 
 *Santiago de Compostela, 10 de agosto de 2005. (Comunicado de la Junta Ejecutiva del Sindicato de Xornalistas de Galicia).*
 
