@@ -1,4 +1,4 @@
-#Luchar contra toda precariedad
+# Luchar contra toda precariedad
 
 Madrid, 8 de julio de 2005 (hoja informativa del SPM-RNE)
 
