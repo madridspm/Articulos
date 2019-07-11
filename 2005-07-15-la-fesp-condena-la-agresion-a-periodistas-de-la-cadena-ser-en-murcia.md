@@ -1,4 +1,4 @@
-#La FeSP condena la agresión a periodistas de la cadena Ser en Murcia
+# La FeSP condena la agresión a periodistas de la cadena Ser en Murcia
 
 *Madrid, 15 de julio de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
