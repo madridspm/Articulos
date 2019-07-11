@@ -1,4 +1,4 @@
-#Seguimiento masivo del primer paro en Gestevisión Telecinco, que intenta 'anularlos' grabando y cambiando programas
+# Seguimiento masivo del primer paro en Gestevisión Telecinco, que intenta 'anularlos' grabando y cambiando programas
 
 *Madrid, 3 de noviembre de 2005.*
 
