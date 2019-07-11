@@ -1,4 +1,4 @@
-#La FeSP celebra que dos periódicos de Portugal sobrevivan gracias a sus trabajadores
+# La FeSP celebra que dos periódicos de Portugal sobrevivan gracias a sus trabajadores
 
 *Madrid, 11 de agosto de 2005. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
 
