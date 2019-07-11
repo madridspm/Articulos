@@ -1,4 +1,4 @@
-#La Federación de Sindicatos de Periodistas (FeSP) considera que los planes de ajuste divulgados sobre RTVE supondrían su desaparición y la mayor traición a la radiotelevisión pública estatal
+# La Federación de Sindicatos de Periodistas (FeSP) considera que los planes de ajuste divulgados sobre RTVE supondrían su desaparición y la mayor traición a la radiotelevisión pública estatal
 
 *Madrid, 9 de octubre de 2005 (Comunicado de la Junta Ejecutiva Federal de la FeSP)*
 
