@@ -1,4 +1,4 @@
-#Estudiantes en prácticas: 10 criterios para evitar abusos empresariales o académicos
+# Estudiantes en prácticas: 10 criterios para evitar abusos empresariales o académicos
 
 Ante la utilización cotidiana de estudiantes en prácticas como mano de obra regalada para reducir costes por parte de las empresas y el uso y abuso sistemático de becarios por la mayoría de los medios, la Federación de Sindicatos de Periodistas (FeSP) reclama una urgente corrección de lo que no es más que una flagrante explotación laboral que no contribuye a la formación de los futuros profesionales y que afecta de manera visible a la calidad de la información. Para poner fin a estos abusos, la acción de los sindicatos que integran la FeSP debe coordinarse con las autoridades académicas, con los propios estudiantes y con los comités de empresa.
 
