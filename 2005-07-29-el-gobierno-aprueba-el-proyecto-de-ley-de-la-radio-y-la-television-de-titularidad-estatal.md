@@ -1,4 +1,4 @@
-#El Gobierno aprueba el Proyecto de Ley de la Radio y la Televisión de Titularidad Estatal
+# El Gobierno aprueba el Proyecto de Ley de la Radio y la Televisión de Titularidad Estatal
 
 *Madrid, 29 de julio de 2005 (Referencia del Consejo de Ministros de este viernes).*
 
