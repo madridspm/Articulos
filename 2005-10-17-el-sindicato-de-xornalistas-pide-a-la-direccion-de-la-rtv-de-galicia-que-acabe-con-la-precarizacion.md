@@ -1,4 +1,4 @@
-#El Sindicato de Xornalistas pide a la dirección de la RTV de Galicia que acabe con la "precarización"
+# El Sindicato de Xornalistas pide a la dirección de la RTV de Galicia que acabe con la "precarización"
 
 *Santiago de Compostela, 17 de octubre de 2005.*
 
