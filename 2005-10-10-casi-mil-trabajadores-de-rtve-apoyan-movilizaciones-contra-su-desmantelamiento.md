@@ -1,4 +1,4 @@
-#Casi mil trabajadores de RTVE apoyan movilizaciones contra su desmantelamiento
+# Casi mil trabajadores de RTVE apoyan movilizaciones contra su desmantelamiento
 
 *Madrid, 10 de octubre de 2005.*
 
