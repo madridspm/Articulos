@@ -1,0 +1,15 @@
+# Convocatoria de movilizaciones en el sector de prensa diaria por el Convenio Colectivo estatal
+
+**La patronal AMI no acepta negociar una subida salarial ni ninguna de las propuestas que han planteado CC.OO., FeSP, UGT y CIG, pese a que son modestas**
+
+*29 de abril de 2019*
+
+Los sindicatos Comisiones Obreras (CC.OO.), Federación de Sindicatos de Periodistas (FeSP), Unión General de Trabajadores (UGT) y Central Intersindical Galega (CIG), que negocian el VI Convenio Colectivo Estatal del Sector de Prensa Diaria con la patronal Asociación de Medios de Información (AMI), han hecho público el siguiente comunicado conjunto:
+
+"Madrid, 29 de abril. El rechazo rotundo de la patronal Asociación de Medios de Información (AMI) a negociar cualquier tipo de subida salarial en el VI Convenio Colectivo Estatal del Sector de Prensa Diaria obliga a los sindicatos participantes en la mesa de negociación a convocar movilizaciones en todas las empresas afectadas por el convenio. Es un texto de mínimos, muy alejado de cualquiera de los convenios de empresa que sí han aprobado las cabeceras asociadas a AMI, empresas que tras aceptar incrementos salariales en sus convenios niegan la posibilidad de aplicar el mínimo incremento a unos salarios miserables e incluso, en algunos casos, superados por el Salario Mínimo Interprofesional.
+
+"Tras una primera reunión en la mesa de negociación, donde la parte sindical trasladó reivindicaciones más que modestas (subida salarial del tres por ciento, plus dominical a percibir a partir del cuarto domingo trabajado y supresión de las categorías de ayudante y auxiliar de redacción), la patronal amagó primero con una contrapropuesta con la que directamente pretendía tirar abajo el Convenio. Sus propuestas para negociar eran más jornada laboral anual, menos limitaciones a la movilidad funcional, reducir los complementos salariales para las nuevas contrataciones y barra libre para aplicar el descuelgue salarial en las empresas, cuestiones de todo punto inaceptables y una auténtica tomadura de pelo para las plantillas de prensa diaria, más que esquilmadas ya por despidos y ERE, exceso de horas de trabajo y con sueldos inferiores a los de hace una década.
+
+"En una segunda reunión AMI contestó con un **no** rotundo a las pretensiones de la parte sindical y, con el argumento de que la situación de estas empresas hace imposible negociar subidas salariales, solo plantean prorrogar el convenio, una propuesta que de nuevo es una burla a las condiciones laborales, sociales y salariales de los y las profesionales afectados por este Convenio.
+
+"Ante esa actitud intransigente de la patronal AMI, los sindicatos presentes en la mesa de negociación -CC.OO., FeSP, UGT y CIG- han decidido convocar movilizaciones que coincidirán con la campaña para las elecciones autonómicas y municipales del 26 de mayo. Defendemos un convenio que tiene mucho que mejorar, porque los trabajadores y trabajadoras ya aceptaron una congelación salarial y un aumento de horas de trabajo en 2013, y solo han tenido una mínima subida de salario en 2018 que no llegó a todos los grupos profesionales".
