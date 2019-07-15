@@ -1,0 +1,21 @@
+# 1 y 3 de mayo: La FeSP, "contra la precariedad y la desinformación"
+
+**Pide al futuro Gobierno y al Parlamento medidas urgentes ante la situación del sector periodístico y llama a movilizarse en defensa de las libertades, el periodismo y el derecho a la información de la ciudadanía**
+
+*30 de abril de 2019. (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
+
+Un año más, la conmemoración del Día Internacional del Trabajo, el 1 de mayo, y del Día Mundial de la Libertad de Prensa, el 3 de mayo, llega sin que ni los Gobiernos del PP y del PSOE ni el Parlamento hayan adoptado medidas serias para afrontar la grave precariedad laboral y los problemas profesionales que padece el sector de la información. La Federación de Sindicatos de Periodistas (FeSP) denuncia esa actitud, porque solamente con un periodismo ejercido en condiciones dignas y con libertad se podrá garantizar de manera plena el derecho a la información de la ciudadanía.
+
+La FeSP exige al futuro Gobierno y a los grupos parlamentarios que afronten con urgencia las reformas necesarias para acabar con esa situación, que modifiquen las leyes de la última legislatura que recortaron derechos como la libertad de expresión y de información, y que regulen por ley el derecho a la información de la ciudadanía, como esta Federación y otras organizaciones reclaman desde hace años.
+
+Lamentablemente, en el último año han continuado los despidos y el cierre de medios de comunicación, al tiempo que crecía el número de periodistas a la pieza, colaboradoras y colaboradores, freelances y falsos autónomos, sin que el Poder Legislativo haya hecho nada para regularizar a este colectivo, totalmente desprotegido y sin ningún derecho. Es necesario que el Gobierno refuerce la Inspección de Trabajo, para que intensifique su tarea ante esta lacra para el sector y el fraude a la economía pública.
+
+A eso hay que añadir la actitud inmovilista de la patronal de prensa diaria (Asociación de Medios de Información, AMI) en la negociación del convenio colectivo estatal, que no solo no acepta ninguna de las propuestas que han planteado los sindicatos en una plataforma modesta, sino que incluso pretende empeorar las condiciones laborales de las plantillas de las empresas afectadas. Esa cerrazón obliga a FeSP,  CC.OO., UGT y CIG a convocar movilizaciones para finales de mayo.
+
+La ciudadanía y las y los profesionales del periodismo continúan padeciendo los recortes en derechos y libertades que introdujo la Ley Orgánica de Protección de la Seguridad Ciudadana (conocida como Ley Mordaza) y las reformas del Código Penal. Además, proliferan las noticias falsas, sin que se hayan adoptado medidas eficaces para evitarlo. La FeSP reclama al próximo Gobierno y al Parlamento que España asuma con urgencia las normas aprobadas en Europa frente a este problema, así como para proteger a quienes denuncien o alerten sobre casos de corrupción o malas prácticas perjudiciales para el interés general.
+
+En estos 1 y 3 de mayo, la Federación de Sindicatos de Periodistas hace un llamamiento a todas las fuerzas políticas para que respeten la independencia de los medios de comunicación públicos, tanto los estatales como los autonómicos y municipales, y no intenten utilizarlos en su beneficio. Es urgente que el Parlamento resuelva el concurso público para elegir la Presidencia y el Consejo de Administración de RTVE, un método que debería aplicarse también en Radio Televisión de Andalucía  y Radio Televisión Canaria, que deben elegir sus órganos directivos, y extenderse a las demás empresas audiovisuales públicas.
+
+No se puede olvidar que persiste el grave problema de la desigualdad entre hombres y mujeres en los medios de comunicación, no solo en salarios, sino también en el acceso a los puestos de responsabilidad y en el tratamiento cualitativo y cuantitativo que recibe la información referida a las mujeres. También es necesario adoptar medidas contra el ciberacoso en las redes sociales, que afecta sobre todo a las mujeres periodistas.
+
+La FeSP hace un llamamiento a los y las profesionales de la información a participar en los actos y manifestaciones convocadas en toda España, para exigir unas condiciones laborales y profesionales dignas y en defensa del derecho a la información de la ciudadanía.
