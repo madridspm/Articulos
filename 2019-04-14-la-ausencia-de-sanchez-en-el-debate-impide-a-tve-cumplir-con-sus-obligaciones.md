@@ -1,0 +1,11 @@
+# La ausencia de Sánchez en el debate impide a TVE cumplir con sus obligaciones
+
+**José Manuel Martín Medem / Secretario de Medios Públicos del SPM**
+
+*14 de abril de 2019*
+
+Al negarse a participar en el debate electoral de TVE, Pedro Sánchez bloquea la posibilidad de que el servicio público ofrezca a los ciudadanos, como es su obligación, el contraste más pluralista posible entre los principales candidatos. La legislación del sector audiovisual establece formalmente la convivencia equilibrada entre la oferta comercial y la del servicio público. Sánchez rompe ese equilibrio, marginando al servicio público esencial en beneficio del negocio audiovisual de Atresmedia.
+
+La Ley de la Radio y de la Televisión de Titularidad Estatal (2006) obliga a RTVE a facilitar el debate democrático en el ejercicio de su función de servicio público. La Ley de Financiación de RTVE (2009) establece que es obligación de RTVE programar debates electorales. Las Cortes encargaron a RTVE con su Mandato Marco (2007) que sea una de las principales ofertas de información. Y el Consejo de Administración aprobó por unanimidad los Principios Básicos de la Programación de RTVE (2007) para que sea un espacio de debate público que estimule la reflexión, el conocimiento de la realidad, la actitud crítica y la participación ciudadana.
+
+La actitud de Pedro Sánchez contra RTVE se añade a las limitaciones y al incumplimiento de la Ley General de la Comunicación Audiovisual (2010) que impiden el acceso de los ciudadanos a la información y al debate mediante lo que debería ser un equilibrio democrático entre el servicio público, los negocios audiovisuales y los medios de iniciativa social. La LGCA dice que tenemos el derecho a que la comunicación audiovisual se preste a través de una pluralidad de medios, públicos, comerciales y comunitarios, que reflejen el pluralismo ideológico, político y cultural de la sociedad. Pero la misma ley y los gobiernos (del PSOE y del PP) que la han aplicado lo han hecho imposible. Se limita al 25% en el ámbito estatal el espacio radioeléctrico para el servicio público y no se ha cumplido el mandato de la LGCA que obligaba a los gobiernos a aprobar, en un plazo de un año, el reglamento para la concesión de licencias a los medios comunitarios.
