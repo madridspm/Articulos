@@ -1,0 +1,17 @@
+# Panamá expulsa al periodista Boro LH cuando viajaba a Venezuela para cubrir la Asamblea Internacional de los Pueblos
+
+**Fue retenido durante 22 horas en el aeropuerto de Tucumén, le retiraron su ordenador y su móvil y lo interrogaron sobre su militancia y simpatías políticas**
+
+*27 de febrero de 2019*
+
+El periodista Jorge Correa, conocido como Boro LH, fue retenido el lunes 25 de febrero por la policía panameña en el aeropuerto de Tucumén, donde hacía escala para viajar a Venezuela a cubrir informativamente la Asamblea Internacional de los Pueblos como enviado especial de la publicación digital La Haine. Después de 22 horas fue expulsado y devuelto a París.
+
+Poco después de llegar al aeropuerto panameño de Tucumén, cuando se dirigía hacia la zona de embarque para subir al avión que le debía llevar a Caracas, la policía panameña se acercó a él, le pidió que les acompañara “unos minutos” y le llevó a una oficina. Correa se identificó como periodista, mostró el carné del Sindicato de Periodistas de Madrid (SPM), al que está afiliado, y dijo que iba a Caracas a cubrir un evento. Le preguntaron si le habían invitado de parte del presidente venezolano, Nicolás Maduro, o de Juan Guaidó, presidente de la Asamblea Nacional de Venezuela y líder de la oposición que recientemente se autoproclamó presidente encargado del país. También le preguntaron si pertenece a algún partido político o si es o simpatiza con ETA, y se interesaron por los juicios que ha tenido en España.
+
+Los agentes le retiraron el ordenador portátil y el teléfono móvil. Horas más tarde, ya el martes 26 y poco ante de embarcar en el avión hacia París, la policía le acercó un teléfono al oído para que escuchara a una persona que le iba a hablar: era la cónsul de España en Panamá, quien le dijo que se habían interesado por lo ocurrido y le dio ánimos. También le devolvieron el ordenador y el móvil. Desde la capital francesa voló anoche hasta Bilbao.
+
+Según ha publicado La Haine, la familia del periodista contactó con la embajada de España en Panamá y les dijeron que, según las autoridades de ese país, cuando llegó al aeropuerto saltó una alarma según la cual Boro LH era “un peligroso terrorista”.
+
+Posteriormente, la cónsul española comunicó a la familia que en el Código de Migración Panameño hay un artículo que permite a las autoridades de ese país reservarse el derecho de entrada en el mismo, aunque sea en tránsito, a quien tenga causas penales. Boro LH tiene una condena de un año y seis meses de prisión —la Audiencia Nacional consideró que unos tuits suyos constituían un delito de enaltecimiento del terrorismo en redes sociales—, pero no ha habido ninguna solicitud de ingreso en prisión. El periodista estudia recurrir esa sentencia al Tribunal Constitucional, paso previo para poder acudir al Tribunal Europeo de Derechos Humanos.
+
+En otro juicio celebrado en octubre pasado, en el que la fiscalía pedía inicialmente seis años de cárcel a Boro LH por supuesta agresión a dos policías cuando cubría la manifestación “Jaque a la Monarquía” del 29 de marzo de 2014, el reportero fue absuelto. La sentencia destacó que no había indicios suficientes para dar por probada la versión policial y que el testimonio de los agentes no bastaba como única prueba, ya que sus declaraciones en el juicio abundaron en contradicciones e imprecisiones en su relato de los hechos. Además, este relato quedó rotundamente desmentido por las imágenes y los vídeos de otros periodistas que cubrían la manifestación.
