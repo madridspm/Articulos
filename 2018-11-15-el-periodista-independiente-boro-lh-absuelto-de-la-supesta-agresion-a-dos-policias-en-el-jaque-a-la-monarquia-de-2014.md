@@ -1,0 +1,13 @@
+# El periodista independiente Boro LH, absuelto de la supuesta agresión a dos policías en el 'Jaque a la monarquía' de 2014
+
+**El Juzgado rechaza como única prueba el testimonio de los agentes, que fue contradictorio y quedó desmentido por las fotos y vídeos de otros reporteros**
+
+*15 de noviembre de 2018*
+
+El Juzgado número 6 de lo Penal de Madrid ha absuelto al reportero independiente Jorge Correa, más conocido como Boro LH y afiliado al Sindicato de Periodistas de Madrid (SPM), de la supuesta agresión a dos policías durante su cobertura informativa de la manifestación ‘Jaque a la monarquía’ el 29 de marzo de 2014. La fiscalía solicitaba para él dos años de cárcel por atentado a un agente de la autoridad y 4.860 euros de multa por dos delitos de lesiones, y ello después de rebajar su anterior petición de seis años de prisión y 6.200 euros de indemnización durante el juicio oral celebrado el 3 de octubre, en el que la acusación tuvo que reconocer las “discrepancias entre los testimonios del acusado y los policías”.
+
+La sentencia va más lejos al subrayar que no hay indicios suficientes para dar por probada la versión policial y que el testimonio de los agentes no basta como única prueba. Máxime cuando las declaraciones policiales en el juicio estuvieron plagadas de contradicciones y pecaron de serias imprecisiones en su relato de los hechos. Y más aún cuando los testimonios, las imágenes y los vídeos de otros periodistas que cubrían la manifestación –visionados en el juicio— desmintieron rotundamente ese relato de la acusación.
+
+En contraste con esas versiones policiales y fiscales contradictorias, Boro LH, reportero de La Haine y Kaos en la Red, vio respaldado su testimonio por las pruebas fotográficas y audiovisuales recogidas en el lugar por otros informadores. Esas grabaciones no avalan la supuesta agresión, sino todo lo contrario: recogen escenas en las que la policía golpea a media docena de periodistas, así como imágenes que hacen desmoronarse el relato oficial, ya que sugieren una causa ‘accidental’ de las lesiones de los dos policías supuestamente agredidos. En las imágenes se ve a un agente que se cae y arrastra la rodilla y a otro que golpea involuntariamente en la mano a otro antidisturbios, lo que ‘encaja’ con las lesiones en una rodilla y en una mano denunciadas por ambos policías..
+
+El abogado defensor Erlantz Ibarrondo lo resumió con claridad durante y después de la vista oral de octubre pasado: “No hay absolutamente ningún elemento de prueba”, y “las contradicciones [de los agentes] han sido tan evidentes y manifiestas, que no cabe otra posibilidad que la absolución”.
