@@ -1,0 +1,1 @@
+http://sindicato-periodistas.es/juicio-a-boro-lh-la-acusacion-se-enreda-en-declaraciones-contradictorias-y-la-fiscalia-rebaja-de-6-a-2-anos-su-peticion-de-carcel/boro-recibido-al-acabar-juicio-2018-10-03/
