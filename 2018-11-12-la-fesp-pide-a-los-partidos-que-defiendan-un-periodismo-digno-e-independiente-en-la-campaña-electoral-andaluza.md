@@ -1,0 +1,21 @@
+# La FeSP pide a los partidos que defiendan un periodismo digno e independiente en la campaña electoral andaluza
+
+**Lamenta el retraso en resolver el concurso público de RTVE y reclama a los grupos parlamentarios que elijan por criterios profesionales y no por afinidad ideológica**
+
+*12 de noviembre de 2018 / Comunicado de la Junta Ejecutiva Federal de la FeSP*
+
+Ante el inicio de la campaña para las elecciones autonómicas en Andalucía, el próximo 16 de noviembre, la Federación de Sindicatos de Periodistas (FeSP) pide a todos los partidos políticos que se comprometan a adoptar medidas para facilitar el ejercicio de un periodismo digno e independiente, fortalecer el papel de los medios de comunicación en la sociedad -especialmente los públicos- y garantizar el derecho constitucional de la ciudadanía a recibir información veraz y plural, porque si no se cumple plenamente este derecho se resienten gravemente todos los demás.
+
+La Junta Ejecutiva Federal de la FeSP, reunida este fin de semana en Madrid, celebra que el Parlamento andaluz haya aprobado recientemente y por unanimidad la Ley Audiovisual de Andalucía, en cuya tramitación se han tenido en cuenta las aportaciones del Sindicato de Periodistas de Andalucía (SPA) y de otros colectivos y organizaciones. Es una norma progresista que incluye importantes avances respecto a la Ley General de la Comunicación Audiovisual estatal de 2010, como la regulación de las emisoras comunitarias sin ánimo de lucro, el derecho de acceso, la participación ciudadana o la consolidación de la radio y televisión públicas como servicio público.
+
+Esta organización apoya la campaña #RecuperarLaNuestra, que han puesto en marcha los trabajadores de Canal Sur para reclamar una radiotelevisión pública renovada, plural y con financiación suficiente, para que pueda prestar con eficacia el servicio público informativo al que la ciudadanía tiene derecho.
+
+Para que ese modelo de radiotelevisión pública sea posible es necesario, tanto en Andalucía como en las demás comunidades autónomas y en RTVE, que el Gobierno central y los autonómicos no se inmiscuyan en ellas para controlarlas, como vienen haciendo --con más o menos intensidad y desvergüenza, según los casos-- y dejen trabajar con plena libertad a sus profesionales.
+
+También expresamos nuestro apoyo y solidaridad a la plantilla de la radio y televisión públicas de Galicia en sus protestas contra el control y la manipulación que, según han denunciado, ejerce el Gobierno autonómico que preside Alberto Núñez Feijóo.
+
+La FeSP lamenta que se esté retrasando la resolución del concurso público para elegir el Consejo de Administración de RTVE y su presidente o presidenta, por causas atribuibles fundamentalmente a los grupos parlamentarios, que primero mostraron escaso o nulo interés para ponerlo en marcha, y después actuaron en algunos casos guiados más por sus intereses partidistas que en beneficio de la radiotelevisión pública estatal. Les pedimos que elijan las mejores candidaturas por sus méritos profesionales y no por afinidad ideológico o por amiguismo.
+
+Asimismo, la FeSP pide al Gobierno y a los grupos parlamentarios que promuevan de una vez por todas una regulación del derecho constitucional a la información que tiene la ciudadanía, en una ley que regule los derechos y deberes de los periodistas, entre ellos los freelances y los periodistas a la pieza, un colectivo cada vez más numeroso que se ve obligado a trabajar en condiciones de precariedad extrema. Esta regulación por ley viene siendo reclamada por la FeSP y otros sindicatos y asociaciones profesionales desde hace muchos años, pero hasta ahora no ha sido aprobada en el Parlamento por falta de voluntad política de los gobiernos de PSOE y PP.
+
+La Junta Ejecutiva Federal de la FeSP ha acordado integrarse en la Mesa Estatal por el Blindaje de las Pensiones (MERP), una plataforma unitaria que agrupa a numerosas organizaciones sociales, sindicales y políticas de distinta orientación ideológica pero que comparten un objetivo común: promover una reforma de la Constitución para que en ella se prohíba cualquier medida que rebaje el poder adquisitivo de las pensiones o la privatización total o parcial del sistema público de las mismas.
