@@ -1,0 +1,19 @@
+# La FeSP debatirá en su IV Congreso (5 de mayo) propuestas para los periodistas más precarios
+
+**Pide cambios en las leyes para impedir sentencias contra la libertad de expresión, la creación artística y la sátira**
+
+**Se congratula del éxito de las manifestaciones contra la 'Ley Mordaza', por las pensiones públicas y por la igualdad de género**
+
+*19 de marzo de 2018 (Comunicado de la Junta Ejecutiva Federal de la FeSP).*
+
+La Federación de Sindicatos de Periodistas (FeSP) va a celebrar su IV Congreso ordinario el próximo 5 de mayo de 2018, en el que analizará y planteará propuestas para uno de los problemas más graves del ya muy deteriorado sector del periodismo: la situación de los y las periodistas que malviven en las peores condiciones de precariedad (falsos autónomos, periodistas a la pieza, colaboradores y freelances), lo que repercute de manera muy negativa en el derecho a la información de la ciudadanía.
+
+La Junta Ejecutiva Federal de la FeSP, reunida el último fin de semana en Madrid, expresa su preocupación por las cada vez más frecuentes sentencias que castigan la libertad de expresión, la creación artística y la sátira, que son posibles gracias a que el vigente Código Penal contiene algunos artículos obsoletos y otros con una redacción ambigua y genérica, nada acordes con los tratados internacionales firmados por España. La FeSP pide a los grupos parlamentarios que pongan en marcha las iniciativas legislativas necesarias para impedir estos ataques a la libertad de expresión, porque solo así estarán respetando de manera real los derechos constitucionales de la ciudadanía.
+
+Esta organización sindical, que ha apoyado las manifestaciones de las últimas semanas en distintas ciudades, felicita a las organizaciones convocantes y se congratula de la respuesta masiva que han tenido tanto la protesta feminista del pasado 8 de marzo como las que el día 17 reunieron en las calles a decenas de miles de personas para defender el sistema público de pensiones y en contra de la Ley Orgánica de Protección de la Seguridad Ciudadana (conocida como Ley Mordaza), que restringe derechos constitucionales de la ciudadanía y solo es apoyada por el Gobierno y el Partido Popular. 
+
+La Junta Ejecutiva Federal de la FeSP también ha acordado solidarizarse con los trabajadores y trabajadoras de los distintos medios de comunicación que últimamente se han visto afectados por expedientes de regulación de empleo (ERE), que han supuesto muchos despidos y otros que están en proceso. Mucho ánimo, entre otros casos, a las plantillas del diario El Punt Avui, donde ya han comenzado a aplicar despidos; Diari de Sabadell, en proceso de cierre, y El Periódico  de Catalunya, en el que el Grupo Zeta ha presentado un ERE para reducir el 45% de la masa salarial, lo que supondría prescindir de 177 personas de esa y otras empresas del grupo.
+
+Los máximos responsables del Grupo Zeta ya han demostrado sobradamente su irresponsabilidad, incumpliendo los acuerdos negociados con los trabajadores y proponiéndoles, además, recortes salariales escandalosos. La FeSP hace un llamamiento a esos directivos --que en los últimos meses han cerrado las revistas Tiempo e Interviú, han despedido a 29 personas en un ERE salvaje en el deportivo Sport y a varias más en otras empresas-- a que negocien un acuerdo razonable con los representantes de los trabajadores y trabajadoras, para encontrar una solución lo menos lesiva posible para la plantilla y mantener la calidad de los productos periodísticos que deben seguir ofreciendo a la ciudadanía.
+
+La FeSP reitera su petición a los grupos parlamentarios del Congreso para que cumplan la nueva ley de la radio y televisión pública, que ellos aprobaron en septiembre pasado, y adopten con urgencia las medidas necesarias para renovar por concurso público el Consejo de Administración y la Presidencia de RTVE, tal y como establece esa ley.
