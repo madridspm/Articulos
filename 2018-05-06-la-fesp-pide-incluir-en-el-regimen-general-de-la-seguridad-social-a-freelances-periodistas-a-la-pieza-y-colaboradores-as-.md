@@ -1,0 +1,21 @@
+# La FeSP pide incluir en el Régimen General de la Seguridad Social a 'freelances', periodistas a la pieza y colaboradores/as
+
+**El IV Congreso de la Federación de Sindicatos de Periodistas reelige a Agustín Yanel como secretario general y vota a Lola Fernández Palenzuela como vicesecretaria general **
+
+*Madrid, 6 de mayo de 2018.*
+
+El IV Congreso de la Federación de Sindicatos de Periodistas (FeSP) ha acordado reclamar que se incluya en el Régimen General de la Seguridad Social --con la correspondiente cotización empresarial-- al amplio colectivo de freelances, periodistas a la pieza y colaboradores/as. También ha pedido que, como ocurre en otros países de la Unión Europea, su trabajo sea regulado en los convenios colectivos y en un acuerdo marco a negociar entre patronal y sindicatos, que deberá establecer remuneraciones mínimas al mismo nivel que las del personal de plantilla, ya que sin ese trabajo no sería posible elaborar el producto informativo que ofrece la empresa a la ciudadanía.
+
+El IV Congreso de la FeSP, celebrado en Madrid con el lema Del 'precariodismo' al 'PerioDigno', ha analizado la grave situación de precariedad que viven periodistas y comunicadores/as en Europa y en España en una mesa de debate que ha contado con la intervención de Ricardo Gutiérrez, secretario general de la Federación Europea de Periodistas (FEP, a la que pertenece la FeSP); Luis Palacio, director de Digimedios y del Informe Anual de la Profesión Periodística de la APM, y María Navarro Limón, excoordinadora general de la Red de Medios Comunitarios (ReMC).
+
+La situación de las mujeres periodistas se ha debatido en otra mesa, que ha reclamado la igualdad real entre hombres y mujeres en las empresas de comunicación. Han intervenido Montse D. Medina, secretaria de Igualdad de la Unión de Profesionales de la Comunicación de Canarias (UPCC); Lola Fernández Palenzuela, vicesecretaria general de la FeSP, y Elena Tarifa, exsecretaria de Igualdad del Sindicato de Periodistas de Cataluña (SPC).
+
+La FeSP, una organización federal integrada por sindicatos de ámbito autonómico, ha acordado modificar y reforzar su estructura para apoyar y defender a profesionales de comunidades donde todavía no existe un sindicato adherido a la Federación pero que quieren afiliarse a esta organización, algo que ahora no pueden hacer porque la FeSP no afilia directamente, sino que lo hacen sus sindicatos.
+
+El IV Congreso de la FeSP también ha aprobado varias resoluciones, entre otras las referidas a la radiotelevisión pública, la exigencia de igualdad entre hombres y mujeres en las empresas de comunicación y en sus productos informativos, la situación de los medios de comunicación comunitarios sin ánimo de lucro, los estudiantes en prácticas, las dificultades de los periodistas para informar de la represión en la zona del Rif (Marruecos) o el trabajo de los informadores en Palestina.
+
+El hasta ahora secretario general de la FeSP, Agustín Yanel, del Sindicato de Periodistas de Madrid (SPM), ha sido reelegido para continuar otros cuatro años en ese cargo. Lola Fernández Palenzuela, del Sindicato de Periodistas de Andalucía (SPA), que desde julio de 2017 era provisionalmente la vicesecretaria general, ha sido elegida para seguir en ese cargo.
+
+Agustín Yanel, licenciado en Periodismo por la Universidad Complutense de Madrid, trabajó en las agencias Europa Press y Efe hasta que en 1989 fue llamado para formar parte del equipo fundacional del diario El Mundo. Allí se encargó de la información  judicial y posteriormente de la crónica parlamentaria, y durante años presidió el comité de empresa. Ha colaborado en tertulias de radio y televisión y es columnista del digital Encastillalamancha.es. En 1999 formó parte del equipo fundador del Sindicato de Periodistas de Madrid (SPM), en el que ha sido secretario general de 2007 a 2014.
+
+Lola Fernández Palenzuela, licenciada en Periodismo por la Universidad del País Vasco y doctora en Comunicación por la Universidad de Málaga, fue fundadora y secretaria general del Sindicato de Periodistas de Andalucía (SPA) durante 17 años. Forma parte del grupo de comunicadoras que han puesto en marcha la publicación digital de feminismo andaluz La Poderío y es la directora de comunicación de la Fundación Euroárabe, en Granada.
