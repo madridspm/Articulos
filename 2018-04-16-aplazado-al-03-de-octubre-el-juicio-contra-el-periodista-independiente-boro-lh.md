@@ -1,0 +1,13 @@
+# Aplazado al 3 de octubre el juicio contra el periodista independiente Boro LH
+
+**Apenas hora y media antes, un agente de la acusación comunicó por fax que no podía asistir por encontrarse indispuesto por una medicación**
+
+*16 de abril de 2018.*
+
+El juicio contra el periodista independiente Jorge Correa, más conocido como Boro LH, ha sido aplazado hasta el 3 de octubre por la incomparecencia de uno de los dos agentes policiales de la acusación, que apenas hora y media antes de la hora prevista hizo llegar un fax al juzgado de lo penal nº 6 de Madrid en el que comunicaba que no podía asistir por encontrarse indispuesto por una medicación.
+
+La fiscalía, que solicita para el acusado seis años de cárcel (cuatro por lesiones y dos por atentado a la autoridad) y 6.200 euros de indemnización, ofreció un posible pacto "de conformidad", que Boro LH y su defensa rechazaron. El reportero, afiliado al Sindicato de Periodistas de Madrid (SPM-FeSP), se apoya en las pruebas fotográficas y audiovisuales recogidas en el lugar por otros informadores para desmentir la versión policial sobre su supuesta agresión a dos agentes. Las grabaciones recogen escenas de la policía golpeando a media docena de reporteros, y algunas imágenes ponen muy en duda el relato oficial sobre el origen de las lesiones de los dos agentes, que pudieron tener una causa 'accidental', en un caso por una caída y en otro por un golpe de otro antidisturbios.
+
+Más de medio centenar de personas se concentraron ante el juzgado con una pancarta en la que figuraba el nombre del medio independiente y alternativo La Haine, a cuyo colectivo editorial pertenece Boro LH, y que destacaba la leyenda "Periodismo no es terrorismo. #BoroLibre. Libertad de información". El propio reportero sostuvo la pancarta antes de comparecer ante el juzgado, y recibió una calurosa acogida cuando regresó tras serle comunicado el aplazamiento del juicio.
+
+Por otra parte, la Junta de Portavoces del Parlamento de Navarra ha aprobado este lunes una declaración institucional en la que "manifiesta su solidaridad con Boro LH" y demás profesionales de los medios que, "por ejercer los derechos constitucionales de prensa e información, ven coartada su actividad, cuando no criminalizada". También pide "un proceso justo, con todas las garantías", y que se investigue y depuren responsabilidades por la "grave actuación policial del 29 de marzo de 2014". Además, subraya "su compromiso con el periodismo crítico y los valores constitucionales de libertad de expresión e información, esenciales para la formación de una opinión pública libre, pilares de la democracia”.
