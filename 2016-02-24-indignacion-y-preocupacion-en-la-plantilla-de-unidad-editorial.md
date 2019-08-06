@@ -1,0 +1,18 @@
+# "Indignación y preocupación" en la plantilla de Unidad Editorial
+
+**Los comités de empresa acusan al director general del Grupo, Javier Cabrerizo, de "amenazar" con aplicar unilateralmente más recortes y modificar las condiciones de trabajo**
+
+*24 de febrero de 2016.*
+
+
+Todos los comités de empresa y delegados de personal del Grupo Unidad Editorial --editor de El Mundo, Marca, Expansión, Telva y otras revistas-- han denunciado en un comunicado la situación de "desconcierto, preocupación e indignación" que ha provocado la empresa en la plantilla, como consecuencia del "proceso de transformación" que se propone llevar a cabo en todas las sociedades del grupo.
+
+La empresa contrató hace dos meses a la consultora estadounidense FTI Consulting para que estudie la situación del Grupo Unidad Editorial y presente sus propuestas. El presidente de la compañía, Antonio Fernández Galiano, y los interlocutores de la empresa con los comités siempre han dicho que esas propuestas no serán de obligado cumplimiento, sino que se estudiará qué medidas se pueden aplicar y que se hará de manera negociada. Pero, según el comunicado, el director general del Grupo, Javier Cabrerizo --que se incorporó hace poco más de año y medio, procedente de la multinacional tecnológica Oracle, para la que trabajaba en Estados Unidos--, ha afirmado en distintas reuniones que las conclusiones de esa empresa norteamericana serán aplicadas "sí o sí" y que habrá más despidos.
+
+"Así no se puede trabajar", indican en el comunicado los representantes de los trabajadores, pertenecientes en su práctica totalidad a candidaturas de la Federación de Sindicatos de Periodistas (FeSP) y de Comisiones Obreras. "Y así no se puede seguir negociando como si tal cosa todos los convenios colectivos, cuya fecha de caducidad es, precisamente, el 31 de marzo".
+
+"No estamos dispuestos a consentir las 'amenazas' que el director general, Javier Cabrerizo, está realizando en las reuniones con los responsables de todas las cabeceras del Grupo, cuando habla del supuesto 'sufrimiento' que tenemos que pasar en marzo y el 'sarampión' que nos espera para que después de los despidos y recortes 'podamos estar mejor". "Si el propósito de tal estrategia es atemorizar a la plantilla, se están equivocando del todo, porque lo que están consiguiendo es su indignación, no su miedo", afirman en la nota.
+
+Los comités recuerdan en el comunicado que desde que comenzó la crisis, hace ocho años, la plantilla ha sufrido muchos despidos y reducciones salariales, mientras que el actual director general parece "no tener intención" de aplicar ningún recorte ni a él ni a los directivos del Grupo, "inmerso como está en toda una estructura de numerosos altos cargos directivos, coches de empresa, planes de pensiones, etc., etc., que, curiosamente, sigue siendo similar a la de 2009 (la partida de gastos de los directivos aumentó un 13% en 2014 con respecto a 2013, mientras se redujo la masa salarial total)".
+
+"Los comités de empresa y delegados de personal del Grupo Unidad Editorial queremos dejar claro que las 'originales' propuestas de nuestro director general suponen para nosotros, además de poner en peligro a corto plazo nuestras publicaciones impresas, modificaciones sustanciales en las condiciones de trabajo y una colisión con los convenios colectivos que no estamos dispuestos a 'implementar' (sic) de un día para otro, ni de un mes para otro. Si pretende aplicarlas de manera unilateral, como también está amenazando en las mencionadas reuniones, supondrá un seguro conflicto social que, además, terminará con toda probabilidad en los tribunales", concluye el comunicado.
