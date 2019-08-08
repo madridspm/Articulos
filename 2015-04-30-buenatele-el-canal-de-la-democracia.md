@@ -1,0 +1,17 @@
+# BuenaTele, el canal de la democracia
+
+**El desprestigiado Gobierno Rajoy organiza en su etapa final un reparto de licencias de TDT que margina a los medios sociales**
+
+*30 de abril de 2015. José Manuel Martín Medem, miembro de la Junta Ejecutiva del SPM*
+
+BuenaTele se llama la nueva emisión en abierto de cobertura estatal en la Televisión Digital Terrestre (TDT), anunciada como el canal de la democracia por la alianza de los movimientos sociales (las 'mareas' en defensa de los servicios públicos, las 'marchas de la dignidad' y el 15M) que ha conseguido una de las licencias concedidas mediante concurso público por el Gobierno establecido después de las elecciones de noviembre de 2015. Los partidos que forman este Gobierno cumplieron su promesa de reservar una parte de las nuevas licencias para las iniciativas sociales y eliminar la obligación de depositar una fianza de seis millones de euros para poder aspirar a un canal de televisión.
+
+Todo lo anterior es producto de mi imaginación, pero debería ser el primer paso para democratizar el desequilibrado escenario audiovisual que se caracteriza por la reducción del servicio público, el duopolio comercial y el bloqueo de las iniciativas sociales.
+
+En la agonía de su mandato, el Gobierno de Rajoy ha convocado un concurso público para la adjudicación de seis nuevas licencias en la TDT. Lo hace sin respetar su obligación, impuesta por la Ley General de la Comunicación Audiovisual (LGCA), de reservar una parte de las licencias para las iniciativas sociales en el Plan Técnico Nacional de la TDT. Además ha manifestado su disposición para facilitar que los nuevos canales de televisión en abierto y de cobertura estatal se añadan a los que ya acumula el duopolio comercial de Atresmedia y Mediaset y pone como condición para poder aspirar a una de las nuevas televisiones el depósito de una fianza de seis millones de euros. Es una evidente contradicción con la supuesta intención que el Gobierno anuncia en la convocatoria del concurso público: "Ampliar la expresión libre y pluralista de corrientes de opinión".
+
+Un Gobierno como el de Rajoy, desprestigiado y deslegitimado por la corrupción, provoca la lógica desconfianza al organizar un reparto de licencias en la etapa final de su gestión, que puede ser una inversión para amarrar las complicidades con los grandes grupos del poder audiovisual.
+
+La decisión del Gobierno es especialmente decepcionante para las iniciativas sociales que reclaman su derecho de acceso al desequilibrado escenario audiovisual. La LGCA establece desde hace cinco años lo que hasta ahora no se ha cumplido. En su preámbulo anuncia la intención de proteger al ciudadano de posiciones dominantes de opinión para garantizar el pluralismo. Y en sus artículos 4 y 32 concreta la obligación de que la comunicación audiovisual se preste a través de medios públicos, comerciales y sociales que reflejen el pluralismo ideológico, político y cultural, garantizando que la Administración General del Estado reservará la disponibilidad del dominio público radioeléctrico necesario para los servicios sociales de comunicación audiovisual.
+
+El concurso público para la adjudicación de los seis nuevos canales en la TDT debería aplazarse para que lo convoque el Gobierno que se forme después de las próximas elecciones generales. Y los partidos que compitan en las urnas deberían comprometerse a eliminar la fianza de seis millones de euros para poder solicitar las licencias y a respetar el mandato de la LGCA que obliga a reservar una parte para las iniciativas sociales.
