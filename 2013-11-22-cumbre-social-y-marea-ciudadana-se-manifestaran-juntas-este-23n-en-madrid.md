@@ -1,0 +1,19 @@
+# Cumbre Social y Marea Ciudadana se manifestarán juntas este 23-N en Madrid
+
+**El SPM apoya la marcha, que exige "otra política" que defienda lo público y a las personas para lograr "una salida más justa de la crisis"**
+
+*Madrid, 22 de noviembre de 2013.*
+
+La Cumbre Social de Madrid (CSM, a la que pertenece el **Sindicato de Periodistas de Madrid** junto a un centenar de organizaciones sindicales, sociales y culturales) y la Marea Ciudadana de Madrid (MCM, que agrupa a las mareas por la educación, sanidad, ciencia y cultura, servicios sociales, igualdad de género, república y memoria histórica) se manifestarán juntas este sábado 23 de noviembre "para exigir otra política, porque hay alternativas para una salida más justa de la crisis".
+
+La marcha conjunta, que se celebrará a partir de las 12:00 desde Atocha hasta la puerta de Alcalá, ha sido fruto de un doble esfuerzo negociador para confluir en una gran manifestación de respuesta a las "agresiones" a los derechos laborales y sociales por parte de los Gobiernos central, autonómico y municipal, cuyas políticas de recortes "están llevando a la ciudadanía a una desprotección total".
+
+Desde esa perspectiva de consenso y unidad de lucha para defender el Estado de Bienestar que está siendo desmantelado por el gobernante Partido Popular, CSM y MCM lanzan un común "llamamiento para aunar las fuerzas de mareas, asociaciones, plataformas, sindicatos, partidos políticos, colectivos y, en definitiva, todas las personas que aspiran a construir una sociedad más justa, solidaria y democrática". De ahí el lema de la manifestación madrileña, "Emplea tu fuerza. Sí podemos", que modifica parcialmente el "Emplea tu fuerza. Vamos a cambiar las cosas" de la Cumbre Social estatal.
+
+El llamamiento conjunto de ambas plataformas madrileñas recuerda que “las políticas de austeridad impuestas por la Unión Europea y respaldadas por los distintos gobiernos nacionales, entre ellos el español, están generando más paro, más pobreza y más desigualdad”. Así lo demuestran en nuestro país los casi 6 millones de personas en paro, la precarización del mercado laboral –donde se sustituye empleo indefinido por temporal y bajan los salarios mientras aumentan los beneficios empresariales-- y la reducción de las prestaciones por desempleo y las pensiones.
+
+El Gobierno del PP --alertan CSM y MCM-- está “utilizando la crisis económica para desmantelar el Estado de Bienestar” a golpe de recortes en sanidad, educación, servicios sociales, justicia y servicios públicos esenciales. Una política neoliberal, recalcan, que “antepone el interés privado al interés general, que incrementa las desigualdades y se desentiende del ciudadano”. Y que no muestra el más mínimo signo de rectificación, ya que los Presupuestos Generales del Estado para 2014 “son más de lo mismo” y “claramente antisociales”, pues continúan el recorte del gasto y no contemplan actuaciones para impulsar el crecimiento y el empleo.
+
+Al “exigir otra política” que defienda lo público y ponga en el centro de sus preocupaciones a las personas, la Cumbre Social de Madrid y la Marea Ciudadana de Madrid comparten su firme apuesta “por la educación y la sanidad públicas, por la ciencia y la cultura, por el empleo de calidad y los derechos laborales, por el sistema público de pensiones, por el derecho a la vivienda, por los servicios sociales municipales, por un sistema financiero al servicio del interés público y por el respeto al entorno y el medio ambiente”.
+
+En el ámbito estatal, también la **Federación de Sindicatos de Periodistas (FeSP)** ha expresado su apoyo a las manifestaciones convocadas por la Cumbre Social en todo el país para el sábado 23 y el domingo 24 (Andalucía, Asturias y Cataluña). Además, habrá marchas y concentraciones en varios países de la Unión Europea en el marco del llamamiento de la Confederación Europea de Sindicatos (CES) contra la austeridad y los recortes. 
