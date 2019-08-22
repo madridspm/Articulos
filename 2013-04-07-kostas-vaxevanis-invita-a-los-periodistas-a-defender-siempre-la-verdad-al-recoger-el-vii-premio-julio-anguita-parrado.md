@@ -1,0 +1,13 @@
+# Kostas Vaxevanis invita a los periodistas a defender siempre la verdad al recoger el VII Premio Julio Anguita Parrado
+
+*Córdoba, 7 de abril de 2013.*
+
+El periodista griego Kostas Vaxevanis recogió este domingo de manos de Lola Fernández, secretaria general del Sindicato de Periodistas de Andalucía (SPA), y José Miguel Roldán Nogueras, rector de la Universidad de Córdoba, el Premio Internacional de Periodismo Julio Anguita Parrado, que en esta séptima edición ha recaído en el director de la publicación 'Hot Doc', el soporte en el que también hizo pública la conocida como Lista Lagarde con los nombres de los ciudadanos griegos titulares de cuentas en Suiza.
+
+Vaxevanis, que fue detenido para que revelara datos sobre la procedencia de esta información, espera un nuevo juicio que tendrá lugar el próximo 6 de junio tras la apelación presentada por la Fiscalía después de ser absuelto en su primera cita con los tribunales. En su intervención tras recoger el premio, el periodista griego recordó, con la lectura de una de sus crónicas, que él también estuvo en la guerra de Irak al igual que Julio Anguita, al que llamó "el hermano que perdí".
+
+Vaxevanis, muy duro al analizar la situación económica actual de su país, presionado al límite por los mercados financieros,señaló que "hoy el sur de Europa vive su propia guerra, sin misiles ni Kalashnikov, pero donde podemos morir", y criticó que esta parte del continente se ahogue "mientras Alemania se enriquece. No pueden sobrevivir los números y morir las personas", para concluir afirmando que "algunos, mientras se enriquecen, ven a los griegos comiendo de la basura".
+
+Lola Fernández, secretaria general del SPA, recordó en su intervención a los 119 periodistas que perdieron la vida el pasado año en el ejercicio de su profesión y que corrieron la misma suerte que Julio Anguita Parrado, el joven profesional cordobés que murió en la guerra de Irak tras el impacto de un misil en la columna del ejército en la que iba empotrado. La dirigente del Sindicato de Periodistas de Andalucía señaló además la importancia de la profesión periodística a través de la cual "cada día millones de personas en todo el mundo toman decisiones a veces fundamentales para sus vidas, y lo hacen en función de la información que reciben".
+
+El Salón de los Mosaicos del Alcázar de los Reyes Cristianos en Córdoba ha sido, una vez más, el escenario elegido para la entrega del premio organizado por el Sindicato de Periodistas de Andalucía en colaboración con la Universidad de Córdoba y el Ayuntamiento de esta misma ciudad, además del Parque Joyero que diseña una estatuilla conmemorativa que se entrega al ganador de cada edición.
