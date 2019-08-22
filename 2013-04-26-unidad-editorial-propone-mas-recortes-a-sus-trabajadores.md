@@ -1,0 +1,15 @@
+# Unidad Editorial propone más recortes a sus trabajadores
+
+*Madrid, 26 de abril de 2013.*
+
+El Grupo Unidad Editorial --editor de *El Mundo*, *Marca*, *Expansión*, *Telva* y otras revistas-- ha propuesto a los representantes de los trabajadores negociar nuevos recortes y medidas de ahorro, además de las que ya viene aplicando desde hace cinco años, para poder sobrevivir a la importantísima caída de la publicidad y las ventas que vienen registrando todos los medios de comunicación.
+
+Todos los comités de empresa y delegados de personal del grupo han expresado su malestar e indignación porque, mientras estaban reunidos en Madrid el jueves 25 convocados por la compañía, esta distribuyó un comunicado a las 1.600 personas del grupo en el que explica la reorganización y fusiones de sus empresas que ya ha aprobado llevar a cabo, sin haber informado antes a los representantes de la plantilla como exige el Estatuto de los Trabajadores.
+
+Aunque la empresa afirma que la situación de Unidad Editorial es ligeramente mejor que la de otros grandes grupos de comunicación, porque ha puesto en marcha antes medidas con las que ha logrado que la caída de la publicidad y las ventas sea algo menor que en el resto, el presidente ejecutivo, Antonio Fernández Galiano, se refirió en la reunión a la gravedad de la situación y dijo que la adopción de nuevas medidas es imprescindible, porque no se sabe "hasta cuándo va a durar el periodo de la crisis ni tampoco lo que va a caer el mercado" de la prensa.
+
+La empresa plantea ahorrar 20 millones de euros del coste laboral en 2013-2015 y, para ello, propone negociar unas medidas para aplicar este año (reducción coyuntural de salarios, reducciones de jornada temporales, incentivar permisos, prejubilaciones, etc.) y otras para los próximos años, que incluyen negociar un convenio colectivo único para todo el grupo, modificar el actual modelo retributivo y "flexiseguridad" en las condiciones laborales (garantizar el empleo a cambio de que los trabajadores estén dispuestos siempre a adaptarse a las necesidades del mercado).
+
+La empresa proponía que, en la reunión, los comités y delegados constituyeran una mesa de negociación para iniciar las conversaciones. Pero, ante la vaguedad de sus propuestas y su falta de respeto a los representantes de los trabajadores al no informarles de decisiones ya aprobadas, estos acordaron que no constituirán esa mesa hasta que la compañía les informe con detalle sobre varios proyectos que ya tiene en marcha, les facilite otras informaciones solicitadas y abra un periodo de bajas voluntarias, entre otras peticiones recogidas en un comunicado conjunto de los comités y delegados.
+
+El Consejo de Administración de Unidad Editorial ha acordado fusionar en una sola empresa (Unidad Editorial, S.A.) a la actual empresa corporativa del grupo y las cuatro sociedades que ahora editan *El Mundo*, *Marca*, *Expansión* y las revistas del grupo (excepto *Telva*). También llevará a cabo fusiones y absorciones entre otras empresas del grupo.
