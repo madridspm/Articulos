@@ -1,0 +1,17 @@
+# El PP amenaza a 'El País' y la cadena Ser por su información sobre el 'caso Bárcenas'
+
+*Madrid, 19 de abril de 2013.*
+
+El abogado Alberto Durán Ruiz de Huidobro, jefe de la asesoría jurídica del PP, ha enviado sendas cartas a los directores del diario 'El País' y de la cadena Ser en las que les advierte de que si continúan difundiendo informaciones sobre el 'caso Bárcenas' que él considera falsas, sin esperar a lo que digan los jueces en sentencia, ese partido emprenderá las acciones penales que considere pertinentes para defender su honor.
+
+El letrado del PP no solo afirma que las noticias que están difundiendo esos dos medios son "absolutamente falsas" --algo que todavía no ha dicho la Justicia, porque no ha dictado sentencia en la demanda que presentó María Dolores de Cospedal contra 'El País' por publicar los llamados 'papeles de Bárcenas'--, sino que califica de "interesada, tendenciosa y equivocada" la interpretación que el diario ha dado a esa documentación según el criterio periodístico de sus responsables, atribuyéndose competencias que corresponden a los responsables del periódico.
+
+En la carta [http://ep00.epimg.net/descargables/2013/04/19/6f3c294c823cd139afce429fcd9199eb.pdf], el abogado sugiere que esos documentos probablemente han sido entregados al periódico de Prisa por alguna de las partes personadas en la causa, con lo que desprecia el trabajo de los periodistas del medio que se encargan de la información judicial; asegura que la procedencia de los mismos es ilícita, lo que supone imputarles un delito, y añade que la divulgación de documentos de un sumario está prohibida por la ley, con lo que no tiene en cuenta la reiterada jurisprudencia del Tribunal Constitucional en los casos de enfrentamiento entre el derecho al honor y la intimidad, por un lado, y el derecho a la libertad de información por otro.
+
+**Agustín Yanel**, secretario general del **Sindicato de Periodistas de Madrid (SPM)** y responsable de Comunicación de la **Federación de Sindicatos de Periodistas (FeSP)**, ha expresado su rotundo rechazo a estas coacciones a medios de comunicación por parte del PP, porque son "un intolerable ataque a la libertad de información".
+
+"Este abogado, como cualquier otro, sabe perfectamente que en estos casos el Tribunal Constitucional ampara la prevalencia del derecho a la información, por lo que sus advertencias amenazantes a 'El País' y la cadena Ser solo pueden obedecer a una orden de la dirección del partido, y esto es muy grave", ha añadido.
+
+"Con esta actitud, el partido del Gobierno demuestra que no solo no quiere facilitar el trabajo de los periodistas imprescindible en una democracia, ni tampoco ayudar a encontrar soluciones a la gravísima situación por la que atraviesan los medios de comunicación, donde ha habido unos 10.000 despidos en los cinco últimos años, sino que le interesa más defender sus intereses partidistas y retroceder en materia de libertades a tiempos ya superados que depurar en su seno las presuntas responsabilidades de un caso de corrupción que escandaliza a toda la ciudadanía, incluidos sus militantes y votantes", ha indicado Yanel.
+
+Hace tres meses, el PP envió un mensaje al programa 'El gran debate', de Telecinco, que fue leído por el presentador en directo, en el que advertía de que algunos dirigentes del partido iban a estudiar la interposición de acciones penales por la información que estaban debatiendo sobre el 'caso Bárcenas'.
