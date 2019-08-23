@@ -1,0 +1,13 @@
+# Los Comités de Vocento exigen la inmediata retirada del Plan de Incentivos al equipo directivo
+
+*Madrid, 22 de febrero de 2013.*
+
+La Coordinadora de Comités de Empresa del Grupo Vocento (CCE-GV), en la que está representado el **Sindicato de Periodistas de Madrid (SPM)**, rechaza los despidos y rebajas salariales que “hacen pagar a los trabajadores una crisis que no han originado”, y exige la inmediata desaparición de los incentivos al equipo directivo, que recibiría en 2012-2014 más de dos millones de acciones, el 1,74% del capital social.
+
+En un comunicado de cuatro puntos hecho público al término de su reunión en Madrid de los días 20 y 21 de febrero (con participación de representantes de 16 sociedades de Vocento), la CCE-CV subraya “su rechazo al Plan de Eficiencia que ha puesto en marcha la dirección empresarial, y que ha conllevando el despido de 350 trabajadores hasta la fecha, a los que se hace pagar la deficiente gestión realizada durante los últimos seis años”. También denuncia que los Expedientes de Regulación de Empleo (ERE) en varias empresas del Grupo (*Las Provincias*, Corporación de Medios de Alicante, *La Verdad* de Murcia, *Hoy* de Badajoz, *Sur* de Málaga, ABC-Sevilla, Comercializadora de Medios Vocento (CMV) o Punto Radio), junto con las rebajas salariales en otras, “pretenden hacer pagar a los trabajadores una crisis que no han originado”.
+
+La Coordinadora alerta de que “frente a los cambios del modelo informativo, paralelos a la grave recesión económica que atraviesa el país, la dirección de Vocento sigue sin dar respuesta a la sangría de la difusión en las publicaciones del Grupo, motivada por la incomprensible actuación de dar los contenidos de forma gratuita y en abierto en los medios digitales”. Y señala que solo cabe interpretarlo “bajo una oscura intencionalidad de provocar pérdidas, para justificar luego los recortes salariales y de plantillas bajo el paraguas de la reforma laboral”.
+
+En el tercer punto, el comunicado denuncia el injusto contraste entre la situación de trabajadores y directivos. Mientras los primeros aceptaban “en los últimos dos años una doble escala salarial, la suspensión o supresión de pagas extraordinarias o congelado pluses como la antigüedad”, buena parte de los segundos “siguen manteniendo sus bonus de productividad o cobro de planes de pensiones y dietas millonarias por su mera presencia en consejos de administración”. De ahí la petición de “inmediata desaparición del Plan de Incentivos 2012-2014 aprobado el año pasado” citado al principio.
+
+Por último, la reunión sirvió para presentar la recientemente creada Asociación de Comités de Empresa del Grupo Vocento, “con la que se actuará legalmente como grupo de representación intercentros de los trabajadores”.
