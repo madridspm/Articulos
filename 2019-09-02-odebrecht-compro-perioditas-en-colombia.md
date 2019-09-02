@@ -1,0 +1,7 @@
+# Odebrecht compró periodistas en Colombia
+
+*02 septiembre de 2019. (José Manuel Martín Medem, secretario de Medios Públicos del SPM).*
+
+El Consorcio Internacional de Periodistas de Investigación asegura que Odebrecht oculta todavía muchos de sus sobornos a pesar del acuerdo de aceptación de responsabilidades con los fiscales de Brasil, Estados Unidos y Suiza. La constructora brasileña, que se convirtió en la más grande de América Latina, inundó la región de operaciones de corrupción para conseguir millonarias contrataciones de obras públicas. Las manejaba a través de su Departamento de Operaciones Estructuradas que, según la investigación del mencionado consorcio, "funcionaba como una oficina secreta de sobornos". Un ingrediente muy importante de lo que todavía permanece oculto es la lista de periodistas latinoamericanos que fueron comprados por Odebrecht para apoyar sus negocios. En Colombia se ha sabido ahora que la constructora brasileña sobornó a periodistas para mejorar su imagen y destruir la de sus competidores. Lo ha revelado Gabriel García Morales, el viceministro de Transportes acusado de complicidad en una de las licitaciones públicas.
+
+"Periodistas muy importantes -según su declaración publicada por el diario El Espectador- apoyaron el contrato de Odebrecht, no sólo a través de operaciones de relaciones públicas sino además mediante campañas de desprestigio de las empresas de la competencia". La lista de los implicados se mantiene en secreto como parte del acuerdo de colaboración del viceministro con la fiscalía.
