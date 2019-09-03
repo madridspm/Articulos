@@ -1,0 +1,16 @@
+# La FeSP aboga por una información que contribuya a erradicar la violencia de género
+
+*Madrid, 25 de noviembre de 2012. (Comunicado de la Junta Ejecutiva Federal de la **FeSP**).*
+
+Este 25 de noviembre, Día Internacional de la Eliminación de la Violencia contra las Mujeres, la **Federación de Sindicatos de Periodistas (FeSP)** manifiesta la necesidad de que medios de comunicación y periodistas seamos conscientes de la importancia de contribuir a erradicar una de las mayores lacras sociales que maltrata y asesina a miles de mujeres y niñas en todo el mundo.
+Es preciso recordar que los medios de comunicación realizan una labor de "mediación" y prestación del servicio de la información, y los derechos que poseen en relación con la libertad de información están en función de su destinatario, que es la ciudadanía. Los medios y sus profesionales tienen, además, un compromiso con la realidad social en la que imbrican sus mensajes, desde el último redactor y cámara hasta la dirección de la empresa de comunicación y los colaboradores que participen en ella.
+
+Dada la importancia que la información y la comunicación realizadas a través de los medios tienen para el desarrollo individual y social de las personas, es obligado nuestro compromiso en la defensa de los valores democráticos y del respeto a la dignidad humana, que pasa en este caso por recordar que los malos tratos y la violencia contra las mujeres atentan contra los derechos humanos. Esta violencia nunca debe ser considerada como un asunto privado o doméstico, ni debe ser tratada como una noticia convencional, ni como un suceso de la sección de crónica negra.
+
+La violencia contra las mujeres es un asunto de Estado. En este sentido, es imprescindible que las empresas de comunicación formen a su personal en todo lo relacionado con la violencia machista, y que los medios tengan definido --mediante manuales o libros de estilo-- el tratamiento que ha de darse a estas informaciones. También ayudará notablemente la existencia de consejos profesionales en las redacciones, que velen por un adecuado tratamiento de ese tipo de noticias. Y nos parece igualmente necesario que las empresas creen comisiones específicas para actuar contra el acoso o el maltrato, tanto sexual como laboral, que en muchas ocasiones van unidos.
+
+Las administraciones públicas, por su parte, no deberían permitir la difusión de mensajes sexistas que calen en el imaginario colectivo, que incluso podrían ser merecedores de sanciones. Y ellas mismas deben ser conscientes de su importancia como fuente informativa, por lo que deberán formar en la materia a sus gabinetes de prensa y equipos de comunicación.
+
+En cuanto a las organizaciones sociales que trabajan en temas de violencia de género, deben ser conscientes de su papel y relevancia como transmisoras de información a los medios, lo que hace también necesaria su formación en las buenas prácticas informativas y comunicativas.
+
+La **FeSP** está convencida de que solamente con la conjunción de los esfuerzos de medios de comunicación, administraciones y organizaciones sociales se podrá desmontar el imaginario colectivo, todavía demasiado arraigado en nuestra sociedad, que se muestra permisivo con la violencia, el maltrato y la discriminación contra las mujeres.
