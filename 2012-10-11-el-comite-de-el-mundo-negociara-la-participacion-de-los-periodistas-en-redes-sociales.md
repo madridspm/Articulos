@@ -1,0 +1,33 @@
+# El Comité de El Mundo negociará la participación de los periodistas en redes sociales
+
+El Comité de Empresa de El Mundo -del **Sindicato de Periodistas de Madrid (SPM)**- ha pedido a la empresa, y ésta lo ha aceptado, que las dos partes negocien las normas que deberán regular la participación de los periodistas de ese medio en las redes sociales, durante sus horas de trabajo.
+
+La empresa ha explicado al Comité que cuando envió a la plantilla un comunicado sobre esta materia no pretendía "controlar la participación de los trabajadores en las redes sociales, como han interpretado la mayoría de ellos", sino establecer unas "consideraciones" sobre un debate que considera necesario llevar a cabo.
+
+El Comité ha lamentado que la empresa haya actuado de manera unilateral y ha aclarado a la plantilla que la participación en las redes sociales es totalmente voluntaria, que en sus cuentas personales no puede intervenir la empresa y que las opiniones que difundan en esas cuentas personales no tienen por qué coincidir con la línea editorial del periódico.
+
+También han explicado que los redactores no pueden adelantar en las redes sociales informaciones que vayan a publicar en el diario ni difundir opiniones que perjudiquen a la empresa.
+
+Para aclarar este asunto, que tanto malestar ha provocado en la redacción, el Comité de Empresa de El Mundo ha enviado a la plantilla el siguiente comunicado:
+
+**"Comunicado del Comité de Empresa sobre el uso de las redes sociales**
+
+El envío de un comunicado de la dirección a todos los empleados sobre "el uso de las redes sociales en las REDACCIONES de Unidad Editorial" ha causado inquietud y cierto sentimiento de indefensión en la redacción del diario EL MUNDO, tal y como nos han hecho llegar numerosas personas que se ven afectadas por él, y tal y como han expresado también algunos miembros de la redacción públicamente en las propias redes sociales.
+
+En primer lugar, el Comité de Empresa lamenta que esta iniciativa se haya hecho de manera unilateral, sin contar con los representantes legales de la inmensa mayoría de los miembros de la redacción a quienes va dirigida. Aunque la empresa y el secretario general de la redacción han manifestado a este Comité que se trata de consideraciones previas a un debate interno sobre el uso de las redes sociales, sin ningún ánimo intimidatorio o sancionador sobre nadie —incluso insisten en animar a la participación de todos—, estamos convencidos, y así se lo hemos hecho saber a la empresa, que de haber contado con nosotros para iniciar este proceso de manera consensuada se habría evitado la reacción negativa que ha causado en gran parte de la redacción.
+
+El Comité de Empresa se puso en contacto con los servicios jurídicos del Sindicato de Periodistas de Madrid (SPM) el mismo día en que se envió el comunicado a toda la plantilla, a pesar de que se produjo pasadas las 21 horas, y tras esa consulta os resumimos en varios puntos las primeras consideraciones del Comité sobre este proceso que ahora se abre:
+
+El Comité de Empresa del diario EL MUNDO no está en absoluto en contra de que se regule el uso de las redes sociales por parte de los periodistas cuando éstos lo hagan como trabajadores de Unidad Editorial y en sus horas de trabajo. Todo lo contrario, porque establece un marco legal de seguridad laboral. Pero para ello la empresa debe contar con el Comité de Empresa, tal y como establece la legislación. Existen además, distintos códigos regulatorios en otros medios de comunicación (algunos de ellos, como el de 'The New York Times' alentando a sus periodistas a que expresen opiniones libres en consonancia o no con el propio periódico, o el de la Agencia EFE que delimita claramente las cuentas PROFESIONALES de las cuentas PERSONALES), que pueden resultarnos útiles en este debate.
+La incorporación de los periodistas a las redes sociales es absolutamente voluntaria mientras no se modifiquen los contratos de trabajo o los convenios colectivos que regulan las relaciones laborales.
+El Comité de Empresa, y entendemos que la propia empresa, no tienen ninguna capacidad legal para regular CUENTAS PERSONALES en las redes sociales.
+
+Por ello, la participación de profesionales de la redacción de EL MUNDO en las redes sociales a través de CUENTAS PERSONALES no tiene por qué coincidir con los intereses de su cabecera, la línea editorial o tener presentes antagonismos en sus opiniones con respecto de otras. La emisión de sus opiniones no tienen por qué ponerse en relación con los principios fundacionales del diario, o con el planteamiento informativo que se siga en cada caso. Es evidente, no obstante, que lo más responsable es actuar con sentido común, tal y como lo han estado haciendo la inmensa mayoría de los periodistas de EL MUNDO hasta ahora, con un resultado muy positivo y enriquecedor para el periódico, según nuestro punto de vista.
+Es conocido por todos que nadie debe adelantar contenidos informativos en las redes sociales, y así figura en los contratos de trabajo. Además, hay que evitar acciones públicas que, de manera intencionada, perjudiquen a la empresa en la que uno trabaja (ya sea en redes sociales o en cualquier otro medio de comunicación), y la legislación ampara en ello a las empresas. El Comité de Empresa de EL MUNDO no tiene constancia de que haya sucedido algo así en las redes sociales por parte de ningún periodista de nuestra redacción, y la empresa nos lo ha corroborado.
+
+Sobre la utilización de las redes sociales en horas de trabajo (al igual que sucede con el teléfono, el correo electrónico, o la propia navegación por internet, entre otros) deben negociarse con el Comité de Empresa unas medidas consensuadas y sensatas para evitar abusos.
+Hemos pedido a la empresa y al secretario general de la redacción formar parte de ese debate interno que regule el uso de las redes sociales —es, además, obligado por ley en el caso de que se quisieran establecer sanciones— y la respuesta ha sido, en principio, positiva y de abierto diálogo y colaboración con nosotros, aunque todavía sin concretar. La postura inicial de la empresa expresada a este Comité es que “las redes sociales son un área nueva que necesita un debate, una mayor reflexión entre todos, empresa y redacción. El comunicado no significa un reglamento de obligado cumplimiento”.
+
+Como es natural, os mantendremos informados sobre la constitución de este órgano interno de debate, o cualquier circunstancia relativa a este tema. Todas las ideas que se puedan aportar seguro que son de interés y el Comité puede servir de cauce para trasladarlas a la empresa. No dudéis en enviárnoslas.
+
+Un saludo a todos".
