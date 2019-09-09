@@ -1,0 +1,11 @@
+# Un laudo arbitral obliga a Europa Press Delegaciones a incluir en el Censo a un periodista despedido tras convocar el SPM elecciones
+
+*Madrid, 29 de mayo de 2012.*
+
+Europa Press Delegaciones tendrá que incluir en el Censo Electoral al periodista que reclama judicialmente la nulidad de su despido por considerarlo una represalia antisindical. Tal obligación le ha sido impuesta a la empresa por un laudo arbitral, después de que el **Sindicato de Periodistas de Madrid (SPM)** impugnara la exclusión del trabajador de la lista de electores porque, al no ser firme el despido, eso le impediría ejercer sus derechos como elector y elegible en caso de sentencia favorable de readmisión.
+
+El trabajador, que tuvo un papel destacado en la promoción de elecciones sindicales, fue una de las siete personas despedidas 36 horas después de que el **SPM** comunicara a la empresa los 'Preavisos' electorales en tres compañías del Grupo Europa Press (EP). En las otras dos, EP Temática y EP Comunicación, han sido ya elegidos sendos Delegados de Personal, que han puesto fin a una auténtica 'travesía del desierto' sindical en el Grupo EP –con un único y 'peculiar' Delegado de Personal en sus ocho empresas--, donde se abre un nuevo horizonte de representación laboral y de normalidad democrática en la defensa legal de los derechos laborales y profesionales.
+
+El laudo arbitral ordena retrotraer el proceso electoral en EP Delegaciones, donde debe elegirse un Comité de Empresa de cinco personas, hasta el "momento inmediatamente anterior a la publicación del Censo, a fin de que en el mismo sea incluido" el citado trabajador. Esto ha obligado a la Mesa Electoral a rehacer el Calendario Electoral, que fija como nueva fecha de elecciones el próximo 25 de junio.
+
+El **Sindicato de Periodistas de Madrid** confía en que el laudo arbitral convenza a los equipos gestores y directivos del Grupo Europa Press de la necesidad de renunciar a sus continuas maniobras para entorpecer los procesos electorales. El Procedimiento Arbitral cerrado con el laudo favorable al **SPM** podría haberse evitado si la empresa y el presidente de la Mesa Electoral –que tiene categoría de Director-- hubieran atendido las advertencias de todos los Sindicatos presentes en la constitución de la Mesa de que el Censo válido debe ser "a fecha de Preaviso".
