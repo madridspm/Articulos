@@ -1,0 +1,17 @@
+# Veo7 suprime sus informativos y despedirá a un centenar de trabajadores
+
+*Madrid, 13 de mayo de 2011 (comunicado Comisión Seguimiento ERE en Unidad Editorial)*
+
+"El Grupo Unidad Editorial (El Mundo, Marca, Expansión, Veo7, entre otros) ha comunicado a la parte social de la Comisión de Seguimiento del ERE que ha decidido suprimir los informativos de Veo7, a partir del próximo 1 de junio, debido a la importante caída de la publicidad y la escasa audiencia: 0,37% la de los informativos y 0,7% la audiencia total de la cadena. Según la empresa, la mala situación económica de esta televisión es un lastre para todo el grupo y obliga a adoptar medidas de ahorro.
+
+Esta decisión supondrá que un elevado número de personas -todavía sin concretar, pero que probablemente rondará el centenar, de las 260 que integran la plantilla del área audiovisual- perderá sus puestos de trabajo. La parte social de la Comisión ha mostrado su rechazo a esta medida y ha pedido a la empresa que busque otras soluciones antes que reducir puestos de trabajo (otras medidas de ahorro, recolocaciones, etc.). Les hemos dicho, además, que en 2009 negociamos unas medidas de ahorro y 164 despidos para garantizar la viabilidad del grupo, con el compromiso de no tocar la plantilla mientras estuviera vigente el ERE (hasta el 31 de diciembre de 2011).
+
+La empresa ha argumentado que todas las previsiones que hicieron para Veo7 han fallado, por lo que consideran necesario este recorte.
+
+Nosotros hemos pedido a la empresa que exija responsabilidades a quienes adoptaron decisiones que ahora se han visto erróneas, porque los trabajadores no son los responsables de las mismas, entre ellas el fichaje millonario de Ernesto Sáenz de Buruaga (aunque después se haya renegociado) y la adquisición de programas que han sido un rotundo fracaso. Si no lo hacen, denunciaremos con todos los medios a nuestro alcance esa actuación empresarial porque, una vez más, supondría cargar todas las consecuencias de un problema sobre quienes no lo han creado: los trabajadores.
+
+Sorprende, y así se lo hemos dicho, que el Grupo RCS incluyera en diciembre pasado a Veo7 como una de las apuestas estratégicas de su plan trienal 2011-2013 para Unidad Editorial -en el que preveían un incremento muy elevado de la aportación de esta televisión al ebitda de la compañía española, que nosotros siempre les dijimos que no veíamos posible- y unos meses después decidan un recorte drástico de puestos de trabajo. Es más, el pasado marzo los máximos responsables de RCS dijeron al Comité de Empresa Europeo del Grupo en Milán -en presencia de los representantes sindicales españoles- que Veo7 era un objetivo prioritario para ellos, lo mismo que internet.
+
+La empresa argumenta que no se trata de despidos, porque la mayoría de los trabajadores afectados tienen contratos por obra y al acabar ésta -los informativos de Veo7- finaliza su contrato. Aunque esto sea legal, la realidad es que un centenar de personas se quedarían en la calle, entre ellas muchas que ya tendrían que ser fijas porque han encadenado contratos más tiempo del que permite la ley y llevan incluso hasta ocho o nueve años trabajando para la compañía.
+
+Ante esta situación, hemos pedido a la empresa que nos facilite todos los datos sobre la situación de Veo7. Cuando los analicemos, os comunicaremos nuestra opinión y decidiremos de qué manera actuar, pero siempre con un objetivo muy claro: evitar despidos y exigir responsabilidades a quienes corresponda".
