@@ -1,0 +1,15 @@
+# La FeSP denuncia que las empresas aprovechan la crisis para despedir y reducir costes
+
+**Madrid, 30 de abril de 2011. (Comunicado de la Federación de Sindicatos de Periodistas).**
+
+El 1 de mayo, Día Internacional de los Trabajadores, y el 3 de mayo, Día Mundial de la Libertad de Prensa, se conmemoran este año en medio de una crisis generalizada que afecta de manera muy dura a los medios de comunicación. La **Federación de Sindicatos de Periodistas (FeSP)** denuncia que muchas empresas están aprovechando la crisis para reducir sus plantillas y abaratar los costes, lo que degrada las condiciones laborales y profesionales de los periodistas. La consecuencia de ello es que se ve seriamente perjudicado el derecho fundamental de la ciudadanía a recibir información veraz y plural.
+
+La Junta Ejecutiva Federal de la **FeSP** expresa su rechazo a la campaña contra las televisiones públicas que llevan a cabo algunos partidos políticos y una patronal insaciable que reclama el cierre de emisoras locales públicas, la supresión de la publicidad en todas las públicas y la privatización de las televisiones autonómicas.
+
+En vísperas de las elecciones municipales y autonómicas del 22 de mayo, la **FeSP** pide a todos los partidos políticos y candidaturas electorales que se comprometan a democratizar los organismos de gestión y control de los medios de comunicación públicos locales.
+
+En el Día Internacional de los Trabajadores, la **FeSP** manifiesta que la reforma laboral aprobada por el Gobierno no ha servido para crear empleo y ha abaratado el despido, lo que está siendo utilizado por las empresas para desprenderse de una parte de la plantilla con experiencia y sustituirla por gente más joven y con salarios más bajos, e incluso por estudiantes en prácticas que son utilizados ilegalmente como personal fijo.
+
+En una situación de degradación laboral y profesional como la actual, es urgente una ley que regule la profesión periodística, en la que se recojan los derechos de los profesionales de la información, tanto los de plantilla como los periodistas a la pieza, y también sus derechos. Solo de esa manera será posible que puedan cumplir correctamente su trabajo como intermediarios del derecho a la información de la ciudadanía. La FeSP hace un llamamiento al Gobierno y a los grupos parlamentarios para que, de una vez por todas, dejen de someterse a los intereses comerciales de los grandes grupos empresariales de comunicación y apuesten de manera decidida por impulsar ese derecho ciudadano.
+
+Con motivo del Día Mundial de la Libertad de Prensa, que cumple su 20º aniversario. la **FeSP** hace suyo el llamamiento que han hecho el secretario general de Naciones Unidas, la alta comisionada para los Derechos Humanos y la directora general de la UNESCO en defensa de los principios fundamentales de la libertad de expresión. Como ellos, nosotros también afirmamos que, para proteger ese derecho, es necesario garantizar la seguridad de los periodistas y la calidad de su trabajo, tanto los de la prensa como los de las ondas e Internet.
