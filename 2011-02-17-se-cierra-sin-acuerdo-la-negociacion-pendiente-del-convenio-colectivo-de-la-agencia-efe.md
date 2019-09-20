@@ -1,0 +1,15 @@
+# Se cierra sin acuerdo la negociación pendiente del convenio colectivo de la Agencia EFE
+
+*Madrid, 17 de febrero de 2011 (foto AP-SPM)*
+
+Hoy se ha cerrado la negociación sobre las cuestiones pendientes del Convenio Colectivo de la Agencia EFE, sin acuerdo entre la representación de la dirección y la de los trabajadores. Prorrogada una vez desdeel acuerdo del mes de julio pasado, que permitió desbloquear el convenio, la negociación de la Disposición Adicional Segunda no ha producido avance alguno por la actitud de la dirección. El acta final recoge la decepción general de la representación de los trabajadoresyla opinión de los delegados de la **Federación de Sindicatos de Periodistas** (discrepantes con el cierre de la negociación) que señala "la negativa sistemática de la dirección a desarrollar y pactar los contenidos de la Disposición Adicional Segunda".
+
+Esta disposición recoge la necesidad de incluir en el convenio colectivo la regulación del sistema de clasificación, la composición de los tribunales para la provisión de vacantes, el sistema de ingreso y contratación, la figura del becario y los pluses y complementos no cuantificados en convenio.
+
+La dirección también ha incluido en el acta su opinión sobre la responsabilidad compartida en el fracaso de la negociación y ha calificado como falsa la imputación de la **FeSP**. Al respecto, los hechos recogidos en las actas de las reuniones demuestran que la dirección no ha presentado propuesta alguna en cuanto al sistema de ingreso y contratación, ha presentado una propuesta no articulada en lo referente a la composición de los tribunales para la provisión de vacantes, y no ha dado ocasión para que se plantease el debate sobre becarios y pluses y complementos. En cuanto al sistema de clasificación, se aparcó inicialmente y no ha vuelto a ser retomado en todo este tiempo.
+
+La **FeSP** ha hecho constar así mismo un llamamiento "a la subsecretaría del ministerio de la Presidencia del Gobierno y a la vicepresidencia de la SEPI, también firmantes del acuerdo del 2 de julio de 2010, para que garanticen el cumplimiento de la totalidad de lo pactado en el acuerdo citado y permitan que siga abierta la negociación de la Disposición Adicional Segunda durante la vigencia del presente convenio colectivo".
+
+La dirección, finalmente, ha aceptado reunirse con el nuevo comité intercentros (las elecciones sindicales en la sede central de la agencia están previstas para finales de marzo) para "examinar los temas que han quedado pendientes de negociación", sin mencionar expresamente las materias contenidas en el punto 7 del acuerdo (disposición adicional segunda) firmado el pasado verano por el presidente de la agencia, la subsecretaría del Ministerio de la Presidencia, la vicepresidencia de la SEPI, el comité intercentros y los representantes de CCOO, UGT y la **FeSP**.
+
+La rebaja salarial, su extensión y aplicación, objeto de la mayoría de aquellos acuerdos, será aplicada este mes de febrero a toda la plantilla de la Agencia EFE.
