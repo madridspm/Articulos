@@ -1,0 +1,15 @@
+# Los despidos en los medios de comunicación dañan gravemente el derecho a la información
+
+*Las Palmas de Gran Canaria, 30 de enero de 2011 (comunicado de la **FeSP**, foto Quique Curbelo)*
+
+Los nuevos dueños del Grupo PRISA (El País, Cinco Días, Cadena Ser...), un grupo estadounidense que se dedica a invertir en bolsa, han anunciado que van a despedir a 2.500 trabajadores (2.000 de ellos en España). Por su elevado número, se trata del mayor mazazo contra el periodismo y contra el derecho a la información de la ciudadanía, que se suma a los 400 empleos perdidos en dicho grupo por bajas incentivadas, prejubilaciones, recortes de plantilla y el cierre de Localia TV.
+
+Estos despidos masivos se unen a los de otros grandes grupos y en medios más modestos, algunos como consecuencia de una crisis económica cierta, pero otros debidos a la mala gestión de sus directivos y a que los dueños han aprovechado la crisis para reducir costes, despidiendo a los profesionales con más experiencia para contratar a otros más baratos.
+
+En los dos últimos años 4.000 trabajadores de los medios de comunicación, en su mayoría periodistas, han sido despedidos en España, pese a no ser los causantes de la crisis. Mientras, los directivos de estas empresas siguen disfrutando de puestos muy bien remunerados, a la vez que sus accionistas no dejan de repartirse beneficios.
+
+La Junta Ejecutiva Federal de la **Federación de Sindicatos de Periodistas (FeSP)**, reunida este fin de semana en Las Palmas de Gran Canaria, denuncia el cinismo de los nuevos dueños de PRISA, que justifican estos despidos como una medida necesaria para "preservar el mayor número de empleos". A juicio de la FeSP, aunque presumen de ser "la compañía líder en contenidos culturales, educativos, de información y entretenimiento", se les olvida añadir que, ahora, también son líderes en despidos.
+
+La **FeSP** llama la atención sobre el grave daño que estos despidos y el cierre de medios de comunicación suponen para el derecho que tiene la ciudadanía a recibir información veraz y plural. Precisamente este ha sido el eje central del I Congreso sobre el Derecho a la Información de la Ciudadanía, celebrado en la Casa África de Las Palmas de Gran Canaria. Organizado por la Unión de Profesionales de la Comunicación de Canarias y la FeSP, la conclusión de los dos días de reuniones ha sido que periodistas y representantes de los ciudadanos coinciden en la necesidad de que se garantice el acceso a una información veraz, plural y contrastada, frente a la nula o escasa disposición de los partidos mayoritarios a regular por Ley el Derecho a la Información de la Ciudadanía. Por su parte, la FeSP continúa con su intención de impulsar una Plataforma común de apoyo a la Ley Orgánica de Garantíasdel Derecho a la Información de la Ciudadanía.
+
+Respecto al pacto alcanzado para la reforma de las pensiones, la **FeSP** considera que es un nuevo retroceso en los derechos de los trabajadores. Mientras los causantes de la actual situación económica siguen sin pagar por su irresponsabilidad, los trabajadores vuelven a soportar una crisis no provocada por ellos.
