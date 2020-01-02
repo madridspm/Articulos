@@ -1,0 +1,15 @@
+# La FeSP denuncia un intento de involución en Radiotelevisión de Mallorca
+
+*Madrid, 4 de marzo de 2010 (comunicado de la FeSP)*
+
+La crisis política en el Gobierno de las Islas Baleares, provocada por la imputación de altos cargos de Unió Mallorquina en casos de corrupción, puede provocar un paso atrás en ciertos avances que ha habido en la Radiotelevisión de Mallorca tras el fin del gobierno de Jaume Matas, del PP. Este partido impulsó la radiotelevisión pública de todas las Baleares –IB3– con sus criterios habituales de control gubernamental, y Unió Mallorquina, el partido bisagra, aplicó esos mismos criterios en RTV de Mallorca.
+
+Con el nuevo gobierno multipartito, constituido por la colaboración de UM, no se han reformado las leyes reguladoras de los entes para lograr su necesaria desgubernamentalización. Y ese partido pasó a controlar IB3, mientras que en la RTV de Mallorca la designación de la directora corrió a cargo de la fuerza política mayoritaria, el PSOE.
+
+En RTV de Mallorca se nombró directora a una acreditada profesional, la periodista Marisa Goñi –Premio Ortega y Gasset de periodismo por la investigación de los vuelos de la CIA que hicieron escala en Baleares–, comprometida con las exigencias profesionales y sindicales de reforma de los medios y de garantías para el ejercicio de un periodismo no sometido a los gobiernos ni a los partidos. Bajo su dirección, las emisoras de RTV Mallorca no han ocultado los casos de corrupción de UM en materia urbanística. Desde el PP no le perdonan ni su línea informativa general ni que en elecciones anteriores aplicara criterios profesionales informativos para cubrir la campaña electoral y no repartiera el tiempo en proporción a la representación parlamentaria.
+
+De ahí que ambos partidos pretendan ahora reformar las normas aprobadas en su día por unanimidad, para establecer que el nombramiento y la destitución del director corresponda al pleno del Consell de Mallorca y no a su presidente. No lo hacen para desgubernamentalizar los medios, sino para repartir su control entre partidos: en este caso recaería en el PP mientras IB3 continúa controlada por UM, pese a su expulsión del Ejecutivo balear.
+
+La Junta Ejecutiva Federal de la **Federación de Sindicatos de Periodistas (FeSP)** denuncia esta operación involucionista, que también incluye la propuesta de estudiar el cierre de TV Mallorca o convertirla en el segundo canal de la televisión autonómica (IB3), lo que afectaría a una plantilla de 120 personas, postura que obedece a criterios políticos que son contrarios a la exigencia profesional y social de que los medios de comunicación públicos deben responder a su nombre y dejar de ser manipulados por el partido político de turno.
+
+La **FeSP** expresa su solidaridad a los trabajadores de RTV Mallorca y a su directora, Marisa Goñi, y rechaza los intentos de retomar el control partidista de las emisoras, actitud que denunciamos ante la sociedad en defensa del derecho constitucional a una información veraz, plural e imparcial, como corresponde a unos medios financiados por toda la ciudadanía y que deben estar a su servicio exclusivo.**
