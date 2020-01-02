@@ -1,0 +1,19 @@
+# El FOP considera urgente una ley que regule el trabajo profesional y garantice el derecho a la información
+
+*Madrid, 15 de enero de 2010*
+
+El Foro de Organizaciones de Periodistas (FOP) ha abordado en su primera reunión anual, celebrada esta semana en Madrid, la situación de los profesionales de los Medios de Comunicación en una doble vertiente: la urgente necesidad de contar con una ley que regule el trabajo de los profesionales y garantice el Derecho a la Información y, en línea con esto, la adopción de medidas que pongan fin a la cadena de despidos y el grave deterioro de las condiciones laborales de los periodistas. Más de 3.200 profesionales han perdido su empleo ante la pasividad del Gobierno que, a juicio del FOP, no puede dar la espalda a un colectivo especialmente vulnerable.
+
+Con respecto al primer punto, el FOP, está trabajando desde hace tiempo en un documento consensuado entre todas las organizaciones: Agrupaciones de periodistas de UGT y CC OO, Federación de Sindicatos de Periodistas (FeSP), el Colexio de Xornalistas de Galicia, el Col•legi de Periodistes de Catalunya y UPIF-Sindicat de la Imatge.
+
+En la reunión se dieron los últimos pasos en la revisión del Proyecto de Ley Orgánica de Garantías del Derecho a la Información. En el documento se contempla la definición básica del trabajo periodístico y los derechos y deberes que comporta tanto para los profesionales de la información como para los medios de comunicación, con el fin de garantizar el derecho de la ciudadanía a recibir una información de calidad. El FOP remitirá su propuesta al Gobierno y a los grupos parlamentarios en próximas fechas.
+
+El Foro, ante las graves consecuencias que la crisis está teniendo en las condiciones laborales de los periodistas, decidió pedir al Ministro de Trabajo e Inmigración, Celestino Corbacho, que inste la actuación de la Inspección de Trabajo y Seguridad Social. Cada día surgen nuevas voces que alertan de la pérdida de calidad de las noticias y reportajes que llegan a los ciudadanos… ese deterioro no es ajeno a la precariedad laboral en la que miles de trabajadores desempeñan su labor en los medios, afirma el Foro en la carta al ministro de Trabajo.
+
+Por último, las organizaciones del FOP, acordaron rechazar sin paliativos la condena a dos periodistas de la Cadena SER, recogida en la reciente sentencia del Juzgado de lo Penal nº 16 de Madrid. “Se trata intrínsecamente de un absurdo, condenar por revelación de secreto a quienes no han hecho sino recoger una información veraz, ampliamente contrastada, relativa a adscripciones irregulares a un partido político legalizado“.
+
+Toda vez que las formaciones políticas legales no tienen, ni pueden tener, consideración de sociedad secreta, no debería considerarse secreto su afiliación a la misma y por tanto tampoco la difusión de esa afiliación. Muy al contrario, teniendo en cuenta la irregularidad denunciada, incurriría en grave irresponsabilidad social y profesional aquel periodista que teniendo esa información no la difundiese. Por ser de evidente interés social, como por otra parte la propia sentencia reconoce.
+
+En cuanto al rocambolesco argumento esgrimido por el juez en torno a la distinción entre “medios de comunicación social” y “medio de comunicación universal” el FOP no puede estar más de acuerdo con la doctrina expuesta por Marc Carrillo, catedrático de Derecho Constitucional de la Universidad Pompeu Fabra, Carrillo establece, con evidencia palmaria, que Internet no es un medio, sino un soporte.
+
+En este sentido, y para evitar el peligro de confusiones similares en el futuro, el Gobierno podría aprovechar la Ley de Economía Sostenible, dado que en la misma se regulan otros aspectos de internet y se encuentra aun en tramitación, para aclarar este aspecto del soporte tecnológico Internet.
