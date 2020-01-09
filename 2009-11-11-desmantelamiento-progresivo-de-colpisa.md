@@ -1,0 +1,9 @@
+# Desmantelamiento progresivo de Colpisa
+
+**Madrid, 11 de noviembre de 2009 (foto Antonio Peiró)**
+
+**El Sindicato de Periodistas de Madrid** denuncia el desmantelamiento progresivo de Colpisa, agencia del Grupo Vocento en la que han sido despedidos cuatro miembros de la Redacción en la última semana. Las nuevas rescisiones de contrato, que se suman a las de los dos máximos cargos de la Dirección y a tres prejubilaciones –una ya completada y dos en proceso de negociación-, incluyen esta vez al redactor-jefe de Sociedad y a dos periodistas especializadas en Espectáculos y Televisión con una larga trayectoria laboral de hasta 31 años. Ello supone una grave descapitalización profesional de un medio que ha sido durante décadas la gran referencia informativa de la prensa regional española.
+
+El **SPM**, bajo cuyas siglas fueron elegidos los tres delegados de personal de Colpisa, expresa su solidaridad y apoyo a las compañeras y compañeros que han sido víctimas de esta arbitraria decisión empresarial. Además, denuncia tanto la incoherencia de la compañía (los responsables de Vocento justifican por causas económicas los cuatro despidos mientras alardean de que las cuentas del grupo están saneadas), como su mal estilo al materializar las nuevas rescisiones de contrato. Dos de las personas afectadas se encontraban disfrutando de días libres y una tenía incluso entregado un tema para publicar en el fin de semana.
+
+El **SPM** lamenta que las empresas de comunicación aprovechen la crisis para recortar plantillas y reducir costes laborales, en vez de consolidar proyectos de futuro sobre sus cimientos más firmes, los trabajadores y las trabajadoras con preparación y experiencia. Todo lo contrario de lo que ha hecho Colpisa con estos cuatro nuevos despidos, que intensifican el goteo de rescisiones de contrato en las empresas madrileñas del Grupo Vocento tras los expedientes de regulación que costaron 133 empleos en el diario ABC y 91 en el gratuito Qué.
