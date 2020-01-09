@@ -1,0 +1,17 @@
+# Fiesta reivindicativa de los trabajadores de GPS a las puertas del fiestón de “Marie Claire”
+
+*Madrid, 19 de noviembre de 2009 (fotos Antonio Peiró)*
+
+Esta vez la fiesta también ha estado en la calle. Con el lema "Hacemos cultura, no somos basura", los trabajadores de la empresa GPS (administración y comercialización de revistas como *Autopista*, *Ser Padres*, *Muy interesante* o *Marie Claire*) han montado un pequeño escenario y equipos de sonido a las puertas del "Prix de la Moda Marie Claire" para denunciar el ERE que ha presentado la dirección contra algo más de una tercera parte de la plantilla. Es el segundo acto público después de reivindicarse la semana pasada frente a los asistentes a la fiesta de la revista Cosmopolitan en el hotel Ritz.
+
+A las ocho de la tarde comienzan la pitada, los bocinazos y los gritos con los invitados que entranpor la puerta de hierro de la "Residence de la Anbassade de France". Elegancia huidiza, corazones de hielo.  Casi ninguno se digna mirar hacia los más de ciento cincuenta trabajadores concentrados que les dedican uno de los lemas de la noche "sin nosotros, no estaríais vosotros".
+
+Apelotonamiento de periodistas y, sobretodo, de fotógrafos para cubrir la fiesta. El portavoz del acto, Manolo González, les invita a sumarse "porque los que hacemos las revistas estamos en este lado". Ni un movimiento. Insiste desde el micrófono: "los trabajadores estamos aquí, donde quieren despedir a 93, y vuestra profesión suma ya más de cinco mil periodistas en la calle". Ni un gesto. "Cruza, cruza, cruza y únete a la lucha" se desgañitan los concentrados. Nada. Tampoco entre los profesionales que acuden ataviados de fiesta, ni siquiera entre los más mediáticos del sector, como Concha García Campoy, que no les dirige ni una mirada.
+
+"¿Sabéis lo que ha pasado en la sesión negociadora de hoy? -pregunta Manolo a sus compañeros-, no ha pasado nada, porque siguen ofreciendo condiciones indignantes en un grupo de empresas que gana dinero".
+
+Primera de las cuatro actuaciones de danza que ofrecerá María Nadal durante la noche. El acto está también convocado con el lema "La cultura y el arte contra los despidos en el Grupo GyJ". Después de la *Danza del fuego*, María Nadal pide a los concentrados que se unan por las manos, con los brazos en alto y entona "todos contra el paro, todos contra el paro, tú lo puedes evitar”.
+
+De las oleadas de famosos, carne de papel cuché y directivos del grupo periodístico, sólo se acercan a saludar Joana Bonet, directora de Marie Claire, un grupo de compañeros del departamento de administración, Boris Izaguirre (después de ser insistentemente reclamado) y Bibiana Fernández, que se pone el lazo negro contra los despidos y se solidariza, micrófono en mano, con los trabajadores.
+
+A las diez y media toca marcharse, porque acaba el tiempo de concentración (vigilada por las dotaciones de cinco furgones policiales) y porque dentro de unas horas hay que volver a pelearse con la dirección que mantiene encima de la mesa 40 días por año trabajado con un máximo de 13 mensualidades. Primero, representantes de todos los comités (una delegada afiliada al **SPM**) y, luego, el pleno del comité de empresa de GPS, suben al escenario. Despide Concha, una trabajadora ya jubilada que ahuyenta el mal fario con la tonadilla "Cómo camina la mujer de Antonio" y les dice a los concentrados "espero que no acabéis caminando de culo".
