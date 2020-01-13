@@ -1,0 +1,9 @@
+# Rhizomatica advierte que las redes 5G van a establecer nuevas formas de desigualdad
+
+*José Manuel Martín Medem, secretario de Medios Públicos del SPM y miembro de la Junta Ejecutiva Federal de la FeSP*
+
+La quinta generación de las tecnologías móviles inalámbricas transformarán las relaciones sociales y económicas “creando nuevas formas de desigualdad y reforzando algunas ya existentes”. Es la advertencia de Peter Bloom, Coordinador General de Rhizomatica (https://www.rhizomatica.org/about/), “una organización dedicada a apoyar la autodeterminación por y para las comunidades con respecto a las tecnologías de la comunicación”. Los promotores de la 5G pregonan una sociedad hiperconectada que, según Bloom, suscita muchas preocupaciones sobre los riesgos para la privacidad y las amenazas de la capacidad de vigilancia sin un suficiente control.
+
+“La 5G -explica el portavoz de Rhizomatica- propone conectar muchos más dispositivos, no sólo teléfonos y ordenadores sino también sensores domésticos, vehículos, equipos industriales, dispositivos médicos implantados, cámaras y drones. Pronto muchos más dispositivos recolectarán mucha más información personal que será almacenada, analizada, empaquetada y vendida por empresas de dudosa confiabilidad”.
+
+Bloom añade que “una consecuencia evidente de la distribución geográfica desigual de las redes 5G, debido a problemas fundamentales de arquitectura de red y costes de despliegue, es que ampliará la brecha digital, dejando a miles de millones de personas sin posibilidad de participar equitativamente en un mundo cada vez más digital”. Además de “los efectos negativos de la polarización y la manipulación masiva en las plataformas de los medios sociales”, se establece una guerra fría tecnológica por “la disputa geopolítica en torno a las 5G entre China y Estados Unidos”.
